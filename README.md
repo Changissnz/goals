@@ -58,7 +58,7 @@ my five senses and beyond. The jolly wholly-hoppersteins alongside the
 tranquility of grasshoppers eating their next meal is a great example 
 of these feelings. 
 
-*aside*
+*aside*  
 I have deep-seated issues! I swear! Wah-wah, letting it all out by 
 unknowingly ingesting truth serum first.
 
