@@ -58,16 +58,16 @@ Strutting around being the big guy without a care, because guess
 what?! You don't need to know, that's what!! Oh, and FOCK Nero. 
 Everybody should hate Nero, no joke.
 
-*aside*
+*aside*  
 Yes, Mother! Yes, I will be home in a little bit. I know it's past  
 your curfew. Please do not ground me!  
 *end aside*
 
-*aside*
+*aside*  
 Wow, little sister Connie McLoughlin! You've grown so confident these  
 past couple years. I would hate to get in your way, now that you are  
 a full-grown hossie diva!  
-*end aside* 
+*end aside*  
 
 *aside*  
 Wow, little brother Raymond Thompson! I see you rocking those new  
