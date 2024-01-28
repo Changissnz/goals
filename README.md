@@ -59,21 +59,22 @@ what?! You don't need to know, that's what!! Oh, and FOCK Nero.
 Everybody should hate Nero, no joke.
 
 *aside*
-Yes, Mother! Yes, I will be home in a little bit. I know it's past
-your curfew. Please do not ground me!
+Yes, Mother! Yes, I will be home in a little bit. I know it's past  
+your curfew. Please do not ground me!  
 *end aside*
 
 *aside*
-Wow, little sister Connie McLoughlin! You've grown so confident these
-past couple years. I would hate to get in your way, now that you are
-a full-grown hossie diva!
+Wow, little sister Connie McLoughlin! You've grown so confident these  
+past couple years. I would hate to get in your way, now that you are  
+a full-grown hossie diva!  
 *end aside* 
 
-*aside*
+*aside*  
 Wow, little brother Raymond Thompson! I see you rocking those new  
 tattoos, dropping out of school, and fitting in with all those  
-blue-collar guys.
+blue-collar guys.  
 *end aside*
+
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 # Toxic Positivity 
 What a good time to be alive. I can feel the aura of magnificence through
