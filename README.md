@@ -67,6 +67,19 @@ of these feelings.
 *aside*  
 I have deep-seated issues! I swear! Wah-wah, letting it all out by 
 unknowingly ingesting truth serum first.
+*end aside*
+
+*aside*
+FOCK.YOU.  
+GO.FOCK.YOURSELF.  
+FOCK.YOU.  
+FOCK.YOUR.FAMILY.  
+FOCK.YOUR.COVER.  
+FOCK.YOUR.PRETENSE.  
+
+YOU.ARE.THE.ONE.WITH.PROBLEMS.  
+GOD.DAMN.YOU.
+*end aside*
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
