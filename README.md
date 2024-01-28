@@ -8,6 +8,7 @@ When it lies so much as to ruin memories,
 Who cares, I dare.  
 
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------
+# Education, Career, Family, and Home Sweet Home
 
 Why do I, at this age, not have a professional position
 that pays me anything more but pennies? Let's see, there
@@ -58,7 +59,7 @@ what?! You don't need to know, that's what!! Oh, and FOCK Nero.
 Everybody should hate Nero, no joke. 
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
+# Toxic Positivity 
 What a good time to be alive. I can feel the aura of magnificence through
 my five senses and beyond. The jolly wholly-hoppersteins alongside the
 tranquility of grasshoppers eating their next meal is a great example 
@@ -87,4 +88,11 @@ Peter Lambucci ?! DAFOCK?!?!
 *end aside*  
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+# A New Wisdom
 
+Why I no longer want to be part of the race, after discovering that 
+the race is all a rat race? Is that really a question? And I do not  
+care to play along with the stupid tricks of old men. Yes. Yes. Call  
+me a bastard now, as if you thought more highly of me before. As for  
+these "Athena" types, please for your own good, take your wars  
+somewhere else. 
