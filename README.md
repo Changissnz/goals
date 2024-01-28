@@ -81,5 +81,10 @@ YOU.ARE.THE.ONE.WITH.PROBLEMS.
 GOD.DAMN.YOU.  
 *end aside*  
 
+*aside*
+Who am I?! Ricardo Antonio Bassanio ?!
+Peter Lambucci ?! TF?!?!
+*end aside*
+
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
