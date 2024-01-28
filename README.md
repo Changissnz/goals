@@ -66,7 +66,7 @@ of these feelings.
 
 *aside*  
 I have deep-seated issues! I swear! Wah-wah, letting it all out by 
-unknowingly ingesting truth serum first.
+unknowingly ingesting truth serum first.  
 *end aside*
 
 *aside*  
