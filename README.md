@@ -37,5 +37,18 @@ Suck on DeezNuts!
 
 As for `home sweet home`, so much for all the love that supposedly 
 happened. I'm not your one-hit wonder, and you'd best keep your
-sad and pathetic FOCKING history and my personal life separate.
+sad and pathetic FOCKING history and my personal life separate,
+mmkay?! Is that cool with you, because I'm not going to keep
+on playing along with the curse anymore, got that?! Understand?!
+I do not need counseling. I do not need to talk about my emotions.
+I do not need a woman companion in my life when there is that kind
+of spirit in the air. 
+
+Look at how tough and confident I am. Walking along in this course
+of time, an equal among equals that is my neo-Roman peers. Wow, what
+a powerful and magnificent neo-Roman empire that I am a citizen in.
+Strutting around being the big guy without a care, because guess 
+what?! You don't need to know, that's what!! Oh, and FOCK Nero. 
+Everybody should hate Nero, no joke. 
+
 
