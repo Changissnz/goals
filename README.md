@@ -33,7 +33,12 @@ hate this additional fact, that if I were given my dues (although
 they would be need to be multiplied due to the loss of time), 
 that I would be given additional problems as well. So much for 
 the spirit of capitalism. These cons and thieves can eat SH**. 
-Suck on DeezNuts! 
+Suck on DeezNuts!
+
+*aside*  
+Did I just use the word `hate` more than once in the last paragraph?!
+Well, I guess it is official now. I really am a hater, isn't I? 
+I'm not entitled, I am the title. I am...
 
 As for `home sweet home`, so much for all the love that supposedly 
 happened. I'm not your one-hit wonder, and you'd best keep your
