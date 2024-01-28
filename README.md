@@ -90,7 +90,7 @@ Peter Lambucci ?! DAFOCK?!?!
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 # A New Wisdom
 
-Why I no longer want to be part of the race, after discovering that 
+Why I no longer want to be part of the race, after discovering that  
 the race is all a rat race? Is that really a question? And I do not  
 care to play along with the stupid tricks of old men. Yes. Yes. Call  
 me a bastard now, as if you thought more highly of me before. As for  
