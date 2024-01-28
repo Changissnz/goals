@@ -51,4 +51,16 @@ Strutting around being the big guy without a care, because guess
 what?! You don't need to know, that's what!! Oh, and FOCK Nero. 
 Everybody should hate Nero, no joke. 
 
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+What a good time to be alive. I can feel the aura of magnificence through
+my five senses and beyond. The jolly wholly-hoppersteins alongside the
+tranquility of grasshoppers eating their next meal is a great example 
+of these feelings. 
+
+*aside*
+I have deep-seated issues! I swear! Wah-wah, letting it all out by 
+unknowingly ingesting truth serum first.
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
