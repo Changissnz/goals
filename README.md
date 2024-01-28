@@ -10,7 +10,7 @@ Who cares, I dare.
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 Why do I, at this age, not have a professional position
-that pays me anything more but pennies. Let's see, there
+that pays me anything more but pennies? Let's see, there
 was education via one of the U.S.A's college systems
 (and at a liberal arts college no less, go me!) which took
 a while for me to graduate from. And then there was the job
