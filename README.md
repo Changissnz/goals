@@ -226,7 +226,8 @@ and stops when it is done rationalizing the base. No one
 philosophizes when they are working.
 
 Philosophy is a thinker's hobby and another one of politic's
-manny tools. 
+many tools. 
+
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 Copyright 2024 Richard Pham  
