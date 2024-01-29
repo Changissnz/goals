@@ -169,6 +169,13 @@ What?! Who?! Have we met?
 NYC? San Francisco? Shanghai? London? The possibilities must be endless...
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+# Listen To Me, Please
+
+Please. I gently ask you to listen to me, during these times very much trying for everyone.
+Take my hand, and I will show you the world (not, and I never went to a liberal arts college
+either). 
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
