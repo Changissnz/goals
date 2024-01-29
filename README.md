@@ -250,6 +250,9 @@ economy so evidently bellied up?
 
 Failure of the economy --> thank God for family values.
 
+Well, I'm broke now. Time to go back to family, and be another
+leech to treat the sick and dying.
+
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 # Reduction to Rags
