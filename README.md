@@ -125,5 +125,13 @@ you, you little FOCK. Watcha gon do?
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# A Messed-Up Individualism
+
+Hey... if anybody asks, I'll tell them that I do not stick out like
+a sore thumb. And then if I feel like it, I'll tell them it's because
+the collective never accepted me. Problem solved.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
