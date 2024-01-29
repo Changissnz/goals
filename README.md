@@ -221,12 +221,13 @@ might add on to the FOCKED-upness.
 
 # Philosophy is Useless
 
-It is supposed to be. it seeks to construct the fundamentals
-and stops when it is done rationalizing the base. No one 
-philosophizes when they are working.
+It is supposed to be. It seeks to construct the fundamentals
+from the vantage point of the thinker and stops when it is 
+done rationalizing the base. No one philosophizes when they 
+are working.
 
 Philosophy is a thinker's hobby and another one of politic's
-many tools. 
+many tools.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
