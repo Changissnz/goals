@@ -191,5 +191,16 @@ your shouts.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# The 4th Industrial Revolution
+
+I feel like there is a lot of misunderstanding around what  
+exactly is the change. But there is no fun in knowing it all.  
+There is absolutely nothing much that will change, except for  
+the jobs people will do. Many people must be a little scared.
+
+I will not say another word.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
