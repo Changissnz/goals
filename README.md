@@ -169,11 +169,25 @@ What?! Who?! Have we met?
 NYC? San Francisco? Shanghai? London? The possibilities must be endless...
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 # Listen To Me, Please
 
 Please. I gently ask you to listen to me, during these times very much trying for everyone.
 Take my hand, and I will show you the world (not, and I never went to a liberal arts college
-either). 
+either). I will not liberate you. I do not believe in art, only arts. And what cannot exist
+in a singular form cannot possibly be true in a plural form.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+# Why So Aggressive?
+
+It is part of the zeitgeist that bonds us all, for a better  
+world that is the planet Earth shaped as a globe.  
+
+Sincerely, Yours Truly. 
+
+Thank you for letting me speak, even if I had to shout above
+your shouts.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
