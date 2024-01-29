@@ -265,5 +265,14 @@ gonna try reducing me to rags? Hey... this isn't hubris.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Special Select
+
+Blessed be those that are specially selected to fulfill their dreams before 
+first having to encounter the most trivial of problems compounded into 
+monstrosities. I cannot say that they live on this planet.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
