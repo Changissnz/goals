@@ -213,8 +213,20 @@ being kind, goes the many wise sayings. But it is not up to
 any one person to be grateful or be kind. 
 
 There is no social obligation to be grateful or be kind, to 
-clarify. And this truism might add on to the FOCKED-upness. 
+clarify, because rules cannot be arranged to wholly capture
+what is gratefulness or what is kindness. And this truism 
+might add on to the FOCKED-upness. 
 
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+# Philosophy is Useless
+
+It is supposed to be. it seeks to construct the fundamentals
+and stops when it is done rationalizing the base. No one 
+philosophizes when they are working.
+
+Philosophy is a thinker's hobby and another one of politic's
+manny tools. 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 Copyright 2024 Richard Pham  
