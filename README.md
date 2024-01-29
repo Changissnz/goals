@@ -122,3 +122,8 @@ Remember what I said about the stupid tricks of old men. Old men,
 despite their arrogance, are actually not dumb as a demographic.
 It's the younglings. I'm not your big brother. The pressure's on 
 you, you little FOCK. Watcha gon do?
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+Copyright 2024 Richard Pham
+Auf Phantasmos Diarriccimo
