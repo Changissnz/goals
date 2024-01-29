@@ -125,5 +125,5 @@ you, you little FOCK. Watcha gon do?
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-Copyright 2024 Richard Pham
+Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
