@@ -231,5 +231,17 @@ many tools.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Moving to the City
+
+Well, I'm packing my bags now. It's been nice, but there is 
+a grand city waiting for my arrival (yeah FOCKING right). 
+
+*two months later*
+
+What a zoo... And the madhouse business is right next door.
+Incredible. Unbelievable. 
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
