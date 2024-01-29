@@ -113,3 +113,12 @@ care to play along with the stupid tricks of old men. Yes. Yes. Call
 me a bastard now, as if you thought more highly of me before. As for  
 these "Athena" types, please for your own good, take your wars  
 somewhere else. 
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+# The Younglings Are Worse
+
+Remember what I said about the stupid tricks of old men. Old men,
+despite their arrogance, are actually not dumb as a demographic.
+It's the younglings. I'm not your big brother. The pressure's on 
+you, you little FOCK. Watcha gon do?
