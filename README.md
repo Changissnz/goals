@@ -202,5 +202,20 @@ I will not say another word.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Be Grateful, Be Kind 
+
+There's a lot of FOCKED-up people around. Now I don't want to
+sound like a hater, but the FOCKED-up veterans w/o jobs, the 
+FOCKED-up homelessness, some of these so-called "businesses", 
+and BLAH BLAH BLAH means that I am entitled to not be grateful 
+or be kind. Of course, there is virtue to being grateful and 
+being kind, goes the many wise sayings. But it is not up to 
+any one person to be grateful or be kind. 
+
+There is no social obligation to be grateful or be kind, to 
+clarify. And this truism might add on to the FOCKED-upness. 
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
