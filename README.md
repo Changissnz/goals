@@ -249,6 +249,7 @@ Who can actually dismiss family values as nothing, when the
 economy so evidently bellied up? 
 
 Failure of the economy --> thank God for family values.
+
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 # Reduction to Rags
