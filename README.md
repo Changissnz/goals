@@ -243,5 +243,23 @@ Incredible. Unbelievable.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Thank God for Family Values
+
+Who can actually dismiss family values as nothing, when the
+economy so evidently bellied up? 
+
+Failure of the economy --> thank God for family values.
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+# Reduction to Rags
+
+The old dirtbag can't work. Well, so be it. There's social welfare in this country  
+(well, the parts of the country that don't oppose social security). 
+
+Hey, no disrespect to the gerontocracy, but I got my own life to live. You really  
+gonna try reducing me to rags? Hey... this isn't hubris. 
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
