@@ -139,5 +139,7 @@ OK. Remember what I wrote about Nero? Well, I take that back completely.
 Like so so sorry. I did not know that he was thee Emperor. Gosh... where
 are my manners when I let my mind move ahead of its axis? 
 
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
