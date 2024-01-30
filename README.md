@@ -384,7 +384,7 @@ the problem, is now uncontrovertibly the problem.
 
 # The Time and Place For Profanity
 
-Profanity is a big party foul. But I am did not  
+Profanity is a big party foul. But I did not  
 attend the party.
 
 Does this make sense? Are you OK with that?
