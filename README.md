@@ -1,3 +1,5 @@
+*NOTE: these are musings and should not be interpreted as absolute truths*
+
 # Goals
 
 How can I possibly say that it is fair,  
