@@ -397,5 +397,17 @@ Require more than just strong men, although the odds would be better.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# The New Way
+
+Big announcement. Big marketing. The New Way! Here it comes!  
+
+*some time later*
+
+The new way will need a lot more time to take effect. There are  
+a plethora of problems with all these dilly-dackadoos, systems,  
+economics,...
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
