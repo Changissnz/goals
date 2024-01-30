@@ -464,7 +464,7 @@ this life you live.
 
 # The Neighborhood Vandal
 
-Keyed the entire left side of my vehicle, no lie. 
+Keyed the entire left side of my vehicle, no lie.  
 They say I'm a leftist. A sorry loser.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
