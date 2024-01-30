@@ -456,7 +456,7 @@ an objective, and a continuity.
 
 # Empire 
 
-Is best learned fabout through the history books. 
+Is best learned about through the history books. 
 There are only facts, beliefs, and constructs in  
 this life you live.
 
