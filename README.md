@@ -321,7 +321,7 @@ And so here is another tale of lonesomeness.
 
 # It Is Not That Great
 
-Oh, finally ends were met and emotions were let out.
+Oh, finally ends were met and emotions were let out.  
 But it is over now and to each their own must they depart.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
