@@ -368,5 +368,19 @@ I do not practice black magic.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Misery Best Left Alone
+
+So there is misery, and a cause for this misery.
+And after all the sad songs are sung, there is
+still that misery. The cause of the misery, the
+solution and the problem.  
+
+If that is all to it, misery is best left alone
+lest misery is to be shared, and then the cause
+of that misery, what was deemed the solution and
+the problem, is now uncontrovertibly the problem.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
