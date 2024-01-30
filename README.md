@@ -309,5 +309,15 @@ down from the old ones.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# A Lost Love
+
+What strange way to wake up in the middle of a deep sleep,  
+and think long and hard on the love that could have been  
+but never happened. 
+
+And so here is another tale of lonesomeness.  
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
