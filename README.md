@@ -290,5 +290,24 @@ Oh! It's head honcho! King of the hill!
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# The Way
+
+Your old ways do not put me to shame. What puts me to shame
+is having to obey your way when there is a better way.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+# Leadership Issues
+
+So there needs to be a leader or pack of leaders leading at  
+the forefront. Where are they? Sipping fine wine and making  
+love to each other while everyone else is to labor away?  
+
+The old ones are becoming unfit, are they not? But some of 
+the newer ones have just as much issues, probably passed
+down from the old ones.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
