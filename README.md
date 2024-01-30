@@ -338,7 +338,18 @@ Maybe this is a bad deal...
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# After the Anger
 
+After the anger, there is a lethargy that sets into the  
+spirit. What was once the fuel that drove the motives  
+behind the spirit to drive forward, uni-directionally,  
+without the restraints of mental barriers that previously  
+existed, is now exhausted. 
+
+And the remaining energy? To repent, to give up, to  
+conjure up more anger, or to celebrate? 
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
