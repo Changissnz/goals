@@ -351,5 +351,22 @@ conjure up more anger, or to celebrate?
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# The Curse
+
+The curse requires a believer in it. Additionally,  
+it requires repetition of the pre-requisites  
+necessary for the curse to unfold.  Such repetition  
+can occur through examples such as deliberate or    
+indeliberate human behaviors and environmental  
+constructs suitable for the curse to manifest  
+itself. The curse demands an inevitability  
+that stems from the inability or stubbornness  
+to change.  
+
+I do not wish to delve more into the matter.  
+I do not practice black magic.  
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
