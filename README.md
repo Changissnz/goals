@@ -469,6 +469,18 @@ They say I'm a leftist. A sorry loser.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Paint Job
+
+It's OK, I got a paint job, like that one lady   
+that puts makeup on every single time before  
+doing the dirty with every single person except  
+you. Say whaat?! What am I talking about?!
+
+I'm looking for an EV anyways. Nothing fancy,  
+but definitely not traditional. 
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
