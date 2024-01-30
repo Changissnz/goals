@@ -452,6 +452,19 @@ Is still controversial in the debate room.
 Is a symbol, a responsibility, an incomplete form of transfer,  
 an objective, and a continuity.
 
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+# Empire 
+
+Is best learned fabout through the history books. 
+There are only facts, beliefs, and constructs in  
+this life you live.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+# The Neighborhood Vandal
+
+Keyed the entire left side of my vehicle, no lie. 
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
