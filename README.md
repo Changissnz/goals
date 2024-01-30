@@ -326,5 +326,19 @@ But it is over now and to each their own must they depart.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# The Bargain and the Strings 
+
+The deal has been reached. What was once nothing from the  
+eyes of the value system now has worth equal to its labor  
+and rarity. But what is this? There are these conditions  
+attached with this influx of monies?! All these conditions?!  
+And why are these conditions so open to interpretation?!  
+
+Maybe this is a bad deal...
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
