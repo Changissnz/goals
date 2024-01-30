@@ -393,7 +393,7 @@ Does this make sense? Are you OK with that?
 
 # Complex Problems
 
-Require more than just strong men. 
+Require more than just strong men, although the odds would be better.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
