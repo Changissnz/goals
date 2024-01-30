@@ -303,8 +303,8 @@ So there needs to be a leader or pack of leaders leading at
 the forefront. Where are they? Sipping fine wine and making  
 love to each other while everyone else is to labor away?  
 
-The old ones are becoming unfit, are they not? But some of 
-the newer ones have just as much issues, probably passed
+The old ones are becoming unfit, are they not? But some of   
+the newer ones have just as many issues, probably passed  
 down from the old ones.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
