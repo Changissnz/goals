@@ -354,8 +354,8 @@ conjure up more anger, or to celebrate?
 # The Curse
 
 The curse requires a believer in it. Additionally,  
-it requires repetition of the pre-requisites  
-necessary for the curse to unfold.  Such repetition  
+the curse requires repetition of the pre-requisites  
+necessary for it to unfold.  Such repetition  
 can occur through examples such as deliberate or    
 indeliberate human behaviors and environmental  
 constructs suitable for the curse to manifest  
