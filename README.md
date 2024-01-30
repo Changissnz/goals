@@ -273,10 +273,18 @@ monstrosities. I cannot say that they live on this planet.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-# It is a Crisis. 
+# It is a Crisis!
 
-It's another one of those Godzilla scenes. 
+It's another one of those Godzilla scenes!
 
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+# The Dull Patriarch
+
+Look at the head of the household. Family values! Big man!
+Don't let it get to your head now, big man!
+
+Oh! It's head honcho! King of the hill!
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
