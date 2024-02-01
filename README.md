@@ -570,6 +570,14 @@ The Roman Empire is an exemplar in the genre of
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Not About the Money
+
+It's not entirely about anything. The mind is   
+malleable and must be re-calibrated from time  
+to time so that focus is maintained.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
