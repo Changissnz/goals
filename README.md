@@ -585,7 +585,7 @@ and your writings will be looked at
 by the illiterate.  
 
 Your words will be drowned out by  
-other words by other speakers that  
+other words from other speakers that  
 hold more favorable positions. Your  
 words, if valuable, just as well be  
 spoken or written by someone else  
