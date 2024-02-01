@@ -558,6 +558,18 @@ remain incomplete.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# This is Empire
+
+The word "empire" carries such rich and diverse
+interpretations. You see it in the movies, the
+shows, and in the writings from both sides of
+the bridge.
+
+The Roman Empire is an exemplar in the genre of
+"empire". 
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
