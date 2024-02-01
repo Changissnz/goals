@@ -489,7 +489,7 @@ Was it supposed to be?
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-# Automation
+# Automated Writing
 
 Word to the wise, don't feel sorry for all of the  
 writers getting laid off because of automated  
