@@ -504,6 +504,49 @@ just a few years back. Or ...
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# The Power of Subjectivity
+
+Do not underestimate any one person's  
+need for subjectivity.  
+
+There is a lot of business involved  
+in subjectivity. And this statement  
+cannot really be disputed.  
+
+If the person is in charge, and they  
+want to maintain an iron grip on every  
+person below, there is absolutely the  
+possibility that they will bring any  
+challenge or challenger into question,  
+this being the realm of subjectivity,  
+if they feel as though such acts would   
+enhance their social position as the  
+one in charge. And this same person in  
+charge will also ensure that they are  
+not seen in a subjective light by those  
+below them, since to be subjective  
+naturally corresponds to being open to  
+question.  
+
+Subjectivity is not reserved only for  
+politics. When the machinations of science,   
+that is technology and logistics, fall short  
+of understanding or solving the problem,  
+whichever may be the goal, then subjectivity  
+is called for so that different interpretations  
+can be made towards different conclusions that  
+hopefully (as in by some measure of chance)  
+perform better.  
+
+Subjectivity is a tool for consensus when  
+it does not lean so heavily towards strong  
+differences in opinions and actions. The  
+common saying is "agree to disagree".  
+
+
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
