@@ -549,7 +549,7 @@ common saying is "agree to disagree".
 
 Are tools that do not work when they do  
 not relate to the core, the central point  
-that it pushes on, especially if the core  
+that they push on, especially if the core  
 is not bounded by all degrees.  
 
 As to the morality of binding things, that  
