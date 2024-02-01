@@ -587,7 +587,7 @@ by the illiterate.
 Your words will be drowned out by  
 other words by other speakers that  
 hold more favorable positions. Your  
-words, if valuable, just as well as  
+words, if valuable, just as well be  
 spoken or written by someone else  
 if they were to have their way.  
 
