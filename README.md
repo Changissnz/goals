@@ -543,7 +543,18 @@ it does not lean so heavily towards strong
 differences in opinions and actions. The  
 common saying is "agree to disagree".  
 
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Social Pressures
+
+Are tools that do not work when they do  
+not relate to the core, the central point  
+that it pushes on, especially if the core  
+is not bounded by all degrees.  
+
+As to the morality of binding things, that  
+is a discussion and a writing that will  
+remain incomplete.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
