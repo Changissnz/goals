@@ -578,6 +578,21 @@ to time so that focus is maintained.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Save Your Words
+
+Your words will fall on deaf ears,  
+and your writings will be looked at  
+by the illiterate.  
+
+Your words will be drowned out by  
+other words by other speakers that  
+hold more favorable positions. Your  
+words, if valuable, just as well as  
+spoken or written by someone else  
+if they were to have their way.  
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
