@@ -496,11 +496,11 @@ writers getting laid off because of automated
 writing and speaking.  
 
 The professional ones were always like  
-"every dog has its day",
+"every dog has its day",  
 "it's only fair"  
-just a few years back. Or ...
+just a few years back. Or ...  
 "it's a tragedy",  
-"it's a sensation".  
+"it's a sensation".    
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
