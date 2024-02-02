@@ -593,6 +593,38 @@ if they were to have their way.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# The Virtue of Deprivation
+
+People get specially selected by 
+the powers that be to embark upon
+routes of life that put them at 
+odds with what routes they would 
+have originally taken if they would
+have had their way, without the 
+external influences from both afar
+and near, based on their preferences
+from the beginning. Underneath, they
+may actually still prefer those 
+routes of original preference,
+but on the outside, they are deprived
+of the experiences from those routes.
+
+The virtue of deprivation is 
+essentially based on the appearances 
+of what those deprived do and how 
+they act, from the standpoint that 
+there are flaws in each person stemming 
+from what they desire and do. 
+
+The choice of individuals to 
+wholeheartedly submit to  
+embarking on the routes specially
+selected by the powers that be is
+a topic of long and contentious
+discussion. 
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
