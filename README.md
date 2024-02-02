@@ -639,9 +639,9 @@ have contentious interpretations,
 such as capitalism and socialism,  
 and take them out of their comfort  
 zone. Then you will hear outcries  
-against capitalism, against socialism,  
-against all of these "-isms",  
-alongside personal attacks. 
+against "capitalism", against  
+"socialism", against all of these  
+"-isms", alongside personal attacks. 
 
 Making people see the "light"?  
 That is a question. 
