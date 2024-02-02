@@ -625,6 +625,29 @@ discussion.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Speaking Out of Line
+
+Give the person a place they 
+feel comfortable in, on the 
+condition that they must appear to
+be a nice person by saying and 
+doing nice things, and you will
+not hear or see much on the surface.
+
+Feed people vocabulary terms that
+have contentious interpretations, 
+such as capitalism and socialism,
+and take them out of their comfort
+zone. Then you will hear outcries 
+against capitalism, against socialism,
+against all of these "-isms", 
+alongside personal attacks. 
+
+Making people see the "light"? 
+That is a question. 
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
