@@ -619,7 +619,7 @@ from what they desire and do.
 The choice of individuals to  
 wholeheartedly submit to  
 embarking on the routes specially  
-selected by the powers that be is  
+selected by the powers that be is    
 a topic of long and contentious  
 discussion.  
 
@@ -627,24 +627,40 @@ discussion.
 
 # Speaking Out of Line
 
-Give the person a place they 
-feel comfortable in, on the 
-condition that they must appear to
-be a nice person by saying and 
-doing nice things, and you will
-not hear or see much on the surface.
+Give the person a place they  
+feel comfortable in, on the  
+condition that they must appear to  
+be a nice person by saying and  
+doing nice things, and you will  
+not hear or see much on the surface.  
 
-Feed people vocabulary terms that
-have contentious interpretations, 
-such as capitalism and socialism,
-and take them out of their comfort
-zone. Then you will hear outcries 
-against capitalism, against socialism,
-against all of these "-isms", 
+Feed people vocabulary terms that  
+have contentious interpretations,  
+such as capitalism and socialism,  
+and take them out of their comfort  
+zone. Then you will hear outcries  
+against capitalism, against socialism,  
+against all of these "-isms",  
 alongside personal attacks. 
 
-Making people see the "light"? 
+Making people see the "light"?  
 That is a question. 
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+# Thievery
+
+Thievery is an interesting topic  
+for discussion. It happens in both  
+capitalist and socialist systems. In  
+one, there is for personal gain. In  
+the other, it is for the greater good.  
+
+Thievery comes in many forms. In some  
+places, it is akin to taking candy from  
+a baby. In other places, it is more  
+outright conflict.
+
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
