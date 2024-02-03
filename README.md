@@ -792,6 +792,24 @@ of a banana republic.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# The New Arrivals
+
+The economy is hot, it's on fire! The  
+jobs are definitely there, immigrant.  
+If you're unskilled, go work blue-collar.  
+It pays well, especially up north in the  
+U.S.A. where there are unions and human  
+rights, unlike the U.S. south according  
+to the mainstream media. 
+
+If you have an H-1B visa, you are so set  
+for life here in the U.S.A. You are gold  
+and can choose which Fortune 500 technology  
+corporation to work for.  
+
+What a great place to be, in the U.S.A!  
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
