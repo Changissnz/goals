@@ -783,7 +783,7 @@ City, Portland of Oregon, London, and other
 metropolises that you so despise because  
 they have democratic bases and you are  
 so conservative and Republican. You  
-don't see yourself. you hate social  
+don't see yourself. You hate social  
 mobility and talent. And you represent  
 an America that is bound to decline  
 because you are so fixated on yourself.  
