@@ -755,35 +755,40 @@ what is this? A hurricane called Ian
 came through a year and a half ago, and  
 many residents still do not have relief  
 so that their residences get rebuilt  
-again. So Charlotte County wants to 
-be practical now, and pushes for 
+again. So Charlotte County wants to  
+be practical now, and pushes for  
 Steube, that's the House Representative  
 for this county, to pressure the  
 federal government for more aid  
-(what a stooge). Oh, so now you are a  
-pragmatist, Charlotte County. Before that,  
-you were a traditional hub of hospitality  
-with a keen focus on developing real estate  
-and building apartment and hotel complexes  
-for the tourism industry. Gotcha. Gotcha.  
-Now I know where your heart is at, Charlotte  
-County.  
+(what a stooge). Oh, so now  
+you are a pragmatist, Charlotte  
+County. Before that, you were a  
+traditional hub of hospitality with  
+a keen focus on developing real estate  
+and building apartment and hotel  
+complexes for the tourism industry.  
+Gotcha. Gotcha. Now I know where  
+your heart is at, Charlotte County.  
 
-You're whack, Charlotte County. Even if  
-you're not as dysfunctional as the declining  
-Portland of Oregon, there is something very  
-wrong with you. I bet there is something very  
-wrong with all regions of the world. It is just  
-that I have had enough of you to grow as a person.  
-You embody the seven deadly sins just as well as  
-New York City, Portland of Oregon, London, and other  
-metropolises that you so despise because they have  
-democratic bases and you are so conservative and  
-Republican. You don't see yourself. you hate social  
-mobility and talent. And you represent an America  
-that is bound to decline because you are so fixated  
-on yourself. You Philistine swine. You and your idea  
-of a banana republic.
+You're whack, Charlotte County.   
+Even if you're not as dysfunctional  
+as the declining Portland of Oregon,  
+there is something very wrong with you.  
+I bet there is something very wrong with  
+all regions of the world. It is just  
+that I have had enough of you to grow  
+as a person. You embody the seven  
+deadly sins just as well as New York  
+City, Portland of Oregon, London, and other  
+metropolises that you so despise because  
+they have democratic bases and you are  
+so conservative and Republican. You  
+don't see yourself. you hate social  
+mobility and talent. And you represent  
+an America that is bound to decline  
+because you are so fixated on yourself.  
+You Philistine swine. You and your idea  
+of a banana republic.  
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
