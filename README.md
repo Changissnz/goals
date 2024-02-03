@@ -662,7 +662,36 @@ a baby. In other places, it is more
 outright conflict.
 
 
----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+---------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+# Stoop Down
+
+Equity policy time! Every person that  
+is not of royalty, or does not have  
+proof that they are descended from  
+royalty, or is an indisputable  
+conqueror, needs to give up their  
+ambition, at least half of their  
+personal belongings, do not act so  
+smart, and know their place! Or else  
+they will be labelled as unequal!  
+
+Only the greatest individuals can  
+enter the contest. Only those that  
+can pay can be spectators.  
+
+This is New Rome, people! Do as the  
+New Romans do, speak as a New Roman  
+and be gladly accepted into a role  
+that you may not like or speak freely  
+and suffer the consequences. Free  
+speech is not free, and freedom is  
+not free!
+
+For a better day today, tomorrow, and  
+for the foreseeable future in New Rome!  
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
