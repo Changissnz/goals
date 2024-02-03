@@ -693,6 +693,20 @@ for the foreseeable future in New Rome!
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Glories of Strangers
+
+A complete stranger and their tales of
+conquest or liberation, in this new age
+of correctness that is political makes 
+for another internet article that is 
+completely forgettable if there are 
+present problems abound for the mind 
+and body.
+
+
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
