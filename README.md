@@ -754,12 +754,13 @@ despise the federal government. But
 what is this? A hurricane called Ian  
 came through a year and a half ago, and  
 many residents still do not have relief  
-so that their residences get rebuilt again.  
-So Charlotte County wants to be practical  
-now, and pushes for Steube, that's the  
-House Representative for this county,  
-to pressure the federal government for more  
-aid (what a stooge). Oh, so now you are a  
+so that their residences get rebuilt  
+again. So Charlotte County wants to 
+be practical now, and pushes for 
+Steube, that's the House Representative  
+for this county, to pressure the  
+federal government for more aid  
+(what a stooge). Oh, so now you are a  
 pragmatist, Charlotte County. Before that,  
 you were a traditional hub of hospitality  
 with a keen focus on developing real estate  
