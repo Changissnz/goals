@@ -667,10 +667,10 @@ outright conflict.
 # Stoop Down
 
 Equity policy time! Every person that  
-is not of royalty, or does not have  
+is not of royalty and does not have  
 proof that they are descended from  
-royalty, or is an indisputable  
-conqueror, needs to give up their  
+royalty and is not an indisputable  
+conqueror needs to give up their  
 ambition, at least half of their  
 personal belongings, do not act so  
 smart, and know their place! Or else  
