@@ -703,9 +703,89 @@ completely forgettable if there are
 present problems abound for the mind 
 and body.
 
+---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# A Hilarious County
+
+I will tell you some reasons why my  
+hometown in Charlotte County is  
+hilarious. 
+
+There are no white-collar jobs. It  
+is suburbia. So if someone wants to  
+move to Charlotte County to work in  
+the technology industry, then they  
+will be met with sore disappointment.  
+I bet a lot of people have heard about  
+the breathtaking developments in A.I.  
+and other related industries. Charlotte  
+County does not understand. There is  
+only real estate and minumum wage. Get  
+on board or drown is the moral here. 
+
+It has an education system built on   
+the Florida law of "no child left  
+behind", so the statistics and the  
+realities are out of touch. 
+
+The rich old folks that move down  
+here have it the best. This is an  
+indisputable fact because the county  
+did get voted as one of the U.S.A's  
+best retirement communities.
+
+There is a lot of small talk and  
+gossip. There is small talk and  
+gossip everywhere, but Charlotte  
+County is unique because all of the  
+small talk and gossip amounts to the    
+same old same old suburbia. And it  
+is predominantly serious talks and  
+gossips too, not that BS meant to  
+let people understand the follies  
+of life. 
+
+There is no social mobility in  
+Charlotte County. It is like a little  
+Constantinople Junior. The political  
+people of Charlotte County are  
+staunchly Republican, and seem to  
+despise the federal government. But  
+what is this? A hurricane called Ian  
+came through a year and a half ago, and  
+many residents still do not have relief  
+so that their residences get rebuilt again.  
+So Charlotte County wants to be practical  
+now, and pushes for Steube, that's the  
+House Representative for this county,  
+to pressure the federal government for more  
+aid (what a stooge). Oh, so now you are a  
+pragmatist, Charlotte County. Before that,  
+you were a traditional hub of hospitality  
+with a keen focus on developing real estate  
+and building apartment and hotel complexes  
+for the tourism industry. Gotcha. Gotcha.  
+Now I know where your heart is at, Charlotte  
+County.  
+
+You're whack, Charlotte County. Even if  
+you're not as dysfunctional as the declining  
+Portland of Oregon, there is something very  
+wrong with you. I bet there is something very  
+wrong with all regions of the world. It is just  
+that I have had enough of you to grow as a person.  
+You embody the seven deadly sins just as well as  
+New York City, Portland of Oregon, London, and other  
+metropolises that you so despise because they have  
+democratic bases and you are so conservative and  
+Republican. You don't see yourself. you hate social  
+mobility and talent. And you represent an America  
+that is bound to decline because you are so fixated  
+on yourself. You Philistine swine. You and your idea  
+of a banana republic.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
