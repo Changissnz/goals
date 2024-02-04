@@ -842,7 +842,7 @@ constructive and research-oriented.
 
 F.O.S.S. stands for free and open source  
 software. As many have come to realize,  
-ever since COVID-19, that the software  
+ever since COVID-19, the software  
 industry is not very stable. The software  
 industry, which relies on commercialization,  
 seems to be having problems generating  
@@ -874,7 +874,7 @@ commercial software. An equal competitor
 means less profits and less control.  
 But the question of software maintenance  
 and security alongside hardware necessary  
-to run it is complicated, but is not 
+to run it is complicated, but is not  
 monetarily free in general. This fact  
 means that those that can acquire the  
 hardware resources necessary to run  
@@ -882,7 +882,7 @@ these software products are at a great
 advantage to establishing a stronghold  
 in the business of software. The  
 semi-conductor industry is undergoing  
-changes... As for the F.O.S.S. 
+changes... As for the F.O.S.S.  
 developers, if they are not sponsored  
 to develop the F.O.S.S. anymore, then  
 they are left to do whatever within  
