@@ -915,6 +915,20 @@ half of it.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# What is Decline?
+
+The word "decline" rings a funny bell in  
+my ears.   
+
+To let new things, unfiltered and  
+unrefined, is a path towards decline.  
+
+To remain both unyielding and barricaded  
+in the face of change is another path  
+towards decline.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
