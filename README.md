@@ -920,7 +920,7 @@ half of it.
 The word "decline" rings a funny bell in  
 my ears.   
 
-To let new things, unfiltered and  
+To let new things in, unfiltered and  
 unrefined, is a path towards decline.  
 
 To remain both unyielding and barricaded  
