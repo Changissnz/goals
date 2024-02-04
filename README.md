@@ -945,7 +945,7 @@ by the empty promises from those more
 fortunate and miserable enough to  
 cling on.
 
-Well, I guess I know where to put 
+Well, I guess I know where to put  
 my luck, in a black box. 
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
