@@ -965,7 +965,11 @@ region in this world. Maybe some
 regions of the world have magnitudes  
 and ratios of the seven deadly sins  
 that enable them to achieve more  
-and keep more.  
+and keep more. Also, there is the  
+matter of personal preference,  
+meaning that some places would  
+suit specific persons better than  
+others.  
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
