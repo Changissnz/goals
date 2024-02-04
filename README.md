@@ -927,6 +927,7 @@ To remain both unyielding and barricaded
 in the face of change is another path  
 towards decline.
 
+To do virtually nothing, is decline.
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 Copyright 2024 Richard Pham  
