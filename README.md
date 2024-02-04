@@ -950,6 +950,25 @@ my luck, in a black box.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Why Vice and Inequality? 
+
+Here is a question. Why are some  
+regions of the world so much better  
+than others measured in terms of  
+effectiveness, productivity, and  
+way of thinking? 
+
+I do not think that religion can  
+fully answer, because the seven  
+deadly sins are a part of every  
+region in this world. Maybe some  
+regions of the world have magnitudes  
+and ratios of the seven deadly sins  
+that enable them to achieve more  
+and keep more.  
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
