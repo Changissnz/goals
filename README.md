@@ -938,6 +938,18 @@ You're not that special, Alex Jones.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Now I See
+
+Now, I still see nothing as expected  
+by the empty promises from those more  
+fortunate and miserable enough to  
+cling on.
+
+Well, I guess I know where to put 
+my luck, in a black box. 
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
