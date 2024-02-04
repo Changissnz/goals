@@ -838,6 +838,83 @@ constructive and research-oriented.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Infeasibility of FOSS
+
+F.O.S.S. stands for free and open source  
+software. As many have come to realize,  
+ever since COVID-19, that the software  
+industry is not very stable. The software  
+industry, which relies on commercialization,  
+seems to be having problems generating  
+revenue, let alone profits. The industry  
+is in many ways getting outsourced to  
+less developed regions of the world,  
+since they obviously need those digital  
+products more. This trend means that many  
+people in developed nations with either  
+the potential or the existing capability  
+to engineer good software products  
+(scientific, reliable, not vaporware) are  
+forced to go work in other industries  
+that require virtually no knowledge  
+in digital technologies. The advanced   
+and overly technical nature of software  
+development means that most software  
+engineering is done by corporations, not  
+governments.  
+
+There has always been strong resistance  
+from various organizations against  
+open-source software. This resistance  
+is so predictable from my perspective  
+because F.O.S.S. usually provides  
+equal benefits to their adopters  
+at no monetary cost in comparison to  
+commercial software. An equal competitor  
+means less profits and less control.  
+But the question of software maintenance  
+and security alongside hardware necessary  
+to run it is complicated, but is not 
+monetarily free in general. This fact  
+means that those that can acquire the  
+hardware resources necessary to run  
+these software products are at a great  
+advantage to establishing a stronghold  
+in the business of software. The  
+semi-conductor industry is undergoing  
+changes... As for the F.O.S.S. 
+developers, if they are not sponsored  
+to develop the F.O.S.S. anymore, then  
+they are left to do whatever within  
+their means, such as becoming bohemians  
+or entrepreneurs. The business of software  
+is very awkward from a materialist's  
+perspective. There is no tangible object.  
+Absolutely no tangible object. The  
+software can only be uploaded or  
+downloaded into tangible objects.  
+The financial industry and its blockchain  
+cryptocurrency splinters have vested  
+interests in the software industry.  
+On the less shadier side, there is  
+the advertisting industry that pays  
+to put up these promotions,  
+advertisements, and other forms of  
+messaging using digital means. And  
+last but not least, there is venture   
+capitalism, which I will not discuss  
+any further.  
+
+I did not put in any citations in this  
+writing. But I keep up to date with what   
+happens in the business of software, since  
+I originally wanted to head straight to a  
+corporation to engineer software for them.  
+I know what I'm talking about, or at least  
+half of it.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
