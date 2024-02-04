@@ -829,8 +829,12 @@ problems everywhere. Instead, the objective
 becomes to maintain the functionalities and  
 enhance well-being. But some regions of the  
 U.S.A. really are ahead by some metrics.  
-But from my perspective, those regions might  
-be a little vain.  
+From my perspective, those regions might   
+be a little vain but at least they have  
+something to show for besides from mass  
+appeal, mass marketing, and self-promotion.  
+In other words, some regions are more  
+constructive and research-oriented. 
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
