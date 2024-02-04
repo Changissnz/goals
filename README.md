@@ -897,7 +897,7 @@ The financial industry and its blockchain
 cryptocurrency splinters have vested  
 interests in the software industry.  
 On the less shadier side, there is  
-the advertisting industry that pays  
+the advertising industry that pays  
 to put up these promotions,  
 advertisements, and other forms of  
 messaging using digital means. And  
