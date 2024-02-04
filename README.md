@@ -813,24 +813,24 @@ What a great place to be, in the U.S.A!
 
 # Little Paradises
 
-I do not think my hometown is the worst.
-I spend a lot of my free time with my head
-lost in the written words of the internet.
-There is always talk of big changes coming
-from magnificent places, call them little
-paradises, that always sound so much better
-that what is already here. So in many ways,
-I am deceived into the realm of delusion.
+I do not think my hometown is the worst.  
+I spend a lot of my free time with my head  
+lost in the written words of the internet.  
+There is always talk of big changes coming  
+from magnificent places, call them little  
+paradises, that always sound so much better  
+that what is already here. So in many ways,  
+I am deceived into the realm of delusion.  
 
-There seems to be problems everywhere, from 
-a fair perspective. It is not really about
-getting ahead anymore when a person sees
-problems everywhere. Instead, the objective
-becomes to maintain the functionalities and
-enhance well-being. But some regions of the
-U.S.A. really are ahead by some metrics. 
-But from my perspective, those regions might
-be a little vain.
+There seems to be problems everywhere, from   
+a fair perspective. It is not really about  
+getting ahead anymore when a person sees  
+problems everywhere. Instead, the objective  
+becomes to maintain the functionalities and  
+enhance well-being. But some regions of the  
+U.S.A. really are ahead by some metrics.  
+But from my perspective, those regions might  
+be a little vain.  
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
