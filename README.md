@@ -1042,7 +1042,7 @@ You are probably already familiar with
 those characters in fiction and real life.  
 They have big ideas, big plans, big  
 aspirations. They work tirelessly to  
-realize their vision. It is up to them to 
+realize their vision. It is up to them to  
 turn big ideas into a better world, a  
 better realism.  
 
@@ -1054,6 +1054,7 @@ things.
 
 Come on. Join the bandwagon. Think big  
 things! Do big things! Change the world!
+
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 Copyright 2024 Richard Pham  
