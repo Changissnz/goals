@@ -1089,7 +1089,7 @@ Serious question. Sometimes, I really do
 wonder what some people, or should I say,  
 peoples (plural, denotes multiple persons  
 planning or conducting activities with  
-each other). 
+each other) do.
 
 And then I remind myself of the four  
 necessities of life, that is food, water,  
