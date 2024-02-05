@@ -999,6 +999,43 @@ civilization.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Be the Solution, Not the Problem 
+
+Fine, so maybe I wrote some harsh things  
+about my hometown. Maybe I should try to  
+be the solution, not the problem. Maybe I  
+should try to put my talents and skills to  
+good use. You know what they say, right?  
+"Real talent can't be stifled."  
+
+Ooh... I have some ideas. How about  
+Charlotte County buy millions of dollars  
+worth of robotics and start producing things  
+by automation? How about Charlotte County  
+stop with the ditch-digging and hire robots  
+instead? How about Charlotte County build up  
+a university that provides free college to  
+enlighten every person that is interested?  
+How about Charlotte County buy robots to do  
+the lawn mowing (but so many small landscaping  
+businesses would be out)? 
+
+You see what I am talking about with these  
+questions. It is vain. What I propose is vain  
+and absolutely unnecessary because Charlotte  
+County does not have the demographics for answers  
+to those questions to swiftly appear. Other  
+regions take priority.
+
+See. I am a practical person. I understand that  
+some things have to be lived with, and some things  
+have to be sacrificed just because there is not  
+enough initiative. That is why I remain perfectly  
+comfortable no matter my state of mind or circle  
+of friends. 
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
