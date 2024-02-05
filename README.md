@@ -1053,8 +1053,11 @@ and do big things and ignore the little
 things.  
 
 Come on. Join the bandwagon. Think big  
-things! Do big things! Change the world!
-
+things! Do big things! Change the world!  
+Never mind the simple things that you have  
+never bothered to try to do, or the many  
+flaws you must have from doing big things  
+all the time!
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 Copyright 2024 Richard Pham  
