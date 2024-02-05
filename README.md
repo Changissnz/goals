@@ -973,6 +973,32 @@ others.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Say Nice Things Please
+
+You are probably flabbergasted and 
+disgusted by some of these things you  
+read in this file. It is OK, here is  
+my apology. 
+
+I will say and write nice things.  
+And then when you are no longer  
+present, I will say really mean  
+and nasty things about you, with  
+the intent as to not upset you.  
+And then those words will carry  
+far, very far because you know, 
+"sound travels and people talk".
+
+Lo and below, what I have just  
+described is modern day  
+passive-aggressive politicking.  
+I cannot imagine that this has  
+changed much over the course of  
+thousands of years of human  
+civilization.  
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
