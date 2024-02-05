@@ -1061,6 +1061,28 @@ all the time!
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Social Contact
+
+Science is incomplete for the human  
+experience. And that is because a lot of  
+the work does not require social contact  
+that is more than research collaboration.  
+
+Social contact is vital. So vital. Without  
+social contact, there is a lack of social  
+contact. 
+
+Social contact allows the human experience  
+to transmit to other human experiences  
+through the projection of identities,  
+super-identities, egos, and super-egos. 
+
+And don't forget, social contact is one of  
+the best ways to express love. "Love is the  
+answer to everything" is what many say.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
