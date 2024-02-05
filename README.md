@@ -986,7 +986,7 @@ present, I will say really mean
 and nasty things about you, with  
 the intent as to not upset you.  
 And then those words will carry  
-far, very far because you know, 
+far, very far because you know,   
 "sound travels and people talk".
 
 Lo and below, what I have just  
