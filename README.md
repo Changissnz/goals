@@ -975,10 +975,10 @@ others.
 
 # Say Nice Things Please
 
-You are probably flabbergasted and 
+You are probably flabbergasted and  
 disgusted by some of these things you  
 read in this file. It is OK, here is  
-my apology. 
+my apology.  
 
 I will say and write nice things.  
 And then when you are no longer  
