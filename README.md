@@ -1145,7 +1145,7 @@ allegiance due to jealous inclinations.
 A cunning jealousy exacerbates present  
 problems, morphing those problems into  
 greater problems through systematic  
-destabilization. But to clarify, pride  
+destabilization. To clarify, pride  
 can also do these things, but jealousy  
 goes about it in a more underhanded  
 way, because jealousy is not pride.  
