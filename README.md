@@ -1101,22 +1101,24 @@ identity and ego, that transpose
 themselves into societal structure,  
 which then reflects back into the  
 perspectives of individuals' identities  
-and egos, fueling their emotive states and  
-ultimate wills.  
+and egos, fueling their emotive states  
+and ultimate wills.  
 
-I could go on to more detailed explanation,  
-but I will not. I will say that today's  
-post-modernist dynamic has led to a  
-lot of routes that would have never  
-existed if it were not for the combination  
-of wretched and wonderful chains of events  
-in the past. Even with some of these  
-improvements, I have still personally  
-concluded that social arrangements such  
-as tribalism still play a role in the  
+I could go on to more detailed  
+explanation, but I will not. I will  
+say that today's post-modernist dynamic  
+has led to a lot of routes that would  
+have never existed if it were not for  
+the combination of wretched and  
+wonderful chains of events in the past.  
+Even with some of these improvements,  
+I have still personally concluded  
+that social arrangements such as  
+tribalism still play a role in the  
 hearts and minds of many, leaving the  
-question of choice on the table not as part  
-of an open discussion but for private deals.  
+question of choice on the table not as  
+part of an open discussion but for  
+private deals.  
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
