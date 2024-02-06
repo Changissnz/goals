@@ -1120,29 +1120,34 @@ of an open discussion but for private deals.
 
 # A Recipe with Jealousy
 
-Jealousy operates by underhanded methodologies.  
-Even the jealous know that jealousy is a prime  
-factor for irrationalism that can just as easily  
-bury them as grant them cheap victories, so  
-their way about victory heavily emphasizes the  
-concealment of said prime factor. But it is not  
-always an orderly world for what exactly is  
+Jealousy operates by underhanded  
+methodologies. Even the jealous know  
+that jealousy is a prime factor for  
+irrationalism that can just as easily  
+bury them as grant them cheap victories,  
+so their way about victory heavily  
+emphasizes the concealment of said  
+prime factor. But it is not always  
+an orderly world for what exactly is  
 order, goes their justification. 
 
-Jealousy is cryptographic. It is one of the  
-great drivers for deception. It is fair to  
-say there are as many methodologies devised  
-to detect friend,foe, or stranger as to conceal  
+Jealousy is cryptographic. It is one  
+of the great drivers for deception.  
+It is fair to say there are as many  
+methodologies devised to detect friend,  
+foe, or stranger as to conceal  
 allegiance. 
 
-A cunning jealousy exacerbates present problems,  
-morphing those problems into greater problems  
-through systematic destabilization. 
+A cunning jealousy exacerbates present  
+problems, morphing those problems into  
+greater problems through systematic  
+destabilization. 
 
-Much can be said and believed about those that  
-embrace jealousy into their hearts or befriend  
-the jealous. But one thing is for certain,  
-jealousy is one of the seven deadly sins.  
+Much can be said and believed about  
+those that embrace jealousy into their  
+hearts or befriend the jealous. But  
+one thing is for certain, jealousy  
+is one of the seven deadly sins.  
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
