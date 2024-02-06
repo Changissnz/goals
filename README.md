@@ -1206,6 +1206,130 @@ to exchange.
 
 --------------------------------------------------------------------------------------------------------------
 
+# Monotony Through Themes  
+
+One of the great uses of expression  
+is apparently to relate one thing  
+as another from one to another.  
+There are parallels between two  
+very apparently different nouns  
+or experiences, and these parallels  
+are forged through the craft of  
+monotonization. Some processes  
+that manifest themselves differently  
+but rests on the same sources  
+can also be greatly and positively  
+related to one another through  
+explicit emphasis of the equality  
+between the sources. 
+
+One shortcoming of natural language  
+is that it cannot be so readily  
+interpreted past a certain point.  
+It is not that the possibility for   
+immediate and deep interpretation  
+is not there, but natural language  
+is usually used in conjunction with  
+other contextual signalling. The  
+permutative reaction from this  
+conjunction has a high probability  
+of resulting in mixed and vast  
+interpretations. To demonstrate  
+the true nature of some of these  
+interpretations requires a  
+feedback loop from the interpreter  
+with themself, others, or a  
+mixture of both. From the  
+perspective of the central mean  
+theorem, the feedback loop  
+starting from the interpreter  
+and ending with both themself  
+and others would provide the most  
+reasonable answer, given the condition  
+that all of the ends of the feedback  
+loop (the interpreter themself  
+and others) are reliable and  
+accurate judges of equal caliber.  
+If the interpreter is left to their  
+own devices so that only they themself  
+comprise the total number of agents  
+involved in the feedback loop, then  
+there is a high risk of error for  
+interpreters untrained overall and a  
+higher risk of error for those  
+inexperienced in the specific  
+circumstances surrounding the  
+communication.
+
+Each feedback loop is part of a  
+long chain used to maintain a  
+constant bridge of accurate  
+interpretation between the interpreter  
+and the subject of interpretation,  
+that is expressed through natural  
+language. The interpreter would  
+then have to constantly corroborate  
+the communication of the present  
+with the past to recalibrate  
+interpretation towards the objective  
+of a best range of answers for  
+the foreseeable future where the  
+subject of interpretation is to  
+remain the subject for interpretation.  
+And this range of answers is usually  
+kept narrow for faster computation.  
+By this construct, deep interpretation  
+can only take place through the trials  
+and errors that have taken place through  
+predominantly deliberate efforts, since  
+the magnitude of intention corresponds  
+to a higher priority for retention of  
+the specific memory for particular  
+trials and errors. 
+
+The long chain, comprised of feedback  
+loops, falls under monotony of themes.  
+Through the consistency that emerges  
+from refinement for improved interpretation  
+by the interpreter, events or concepts  
+expressed through natural language that  
+may not have originally carried any  
+semblance to one another are then attached  
+to each other through the forging of  
+parallelism. The discovery and maintainence  
+of focus on the points of origination, which  
+may change in qualities or quantities  
+over time, that which allow for relatability  
+of different communication through natural  
+language is a task that the long chain of  
+feedback loops dedicates itself to. So  
+the activities revolving around the points  
+of origination also fall under the umbrella  
+of monotony of themes.
+
+The phrase "natural language" usually  
+refers to languages with wide adopters  
+spoken between human beings, but the  
+definition of "natural" is puzzling (to  
+say the least) because the term relies on  
+the existence of a state that is, by  
+default. And said state may not actually  
+exist across the different regions and  
+contexts of all possible interpreters.  
+And the definition of "natural" is  
+probably better measured in terms of  
+the mutations that have occurred rather  
+than the similarities that exist then  
+and now. The reasoning is that the  
+concept of monotony of themes implemented  
+by the long chain of feedback loops  
+would convolute and distort the past   
+and present "natural", leading to  
+errors such as delusion of similarity  
+and false or overabundant parallelism.  
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
