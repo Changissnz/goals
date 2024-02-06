@@ -1288,7 +1288,7 @@ the specific memory for particular
 trials and errors. 
 
 The long chain, comprised of feedback  
-loops, falls under monotony through 
+loops, falls under monotony through  
 themes. Through the consistency that  
 emerges from refinement for improved  
 interpretation by the interpreter,  
