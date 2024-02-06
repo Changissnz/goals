@@ -1191,6 +1191,12 @@ different than what it was originally,
 before the person passed through  
 that education system. 
 
+When education is a system, however,  
+and the person chooses not to enter  
+that system, then they must obviously  
+take other routes and bear different  
+costs and effects. 
+
 --------------------------------------------------------------------------------------------------------------
 
 Copyright 2024 Richard Pham  
