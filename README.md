@@ -1288,9 +1288,9 @@ the specific memory for particular
 trials and errors. 
 
 The long chain, comprised of feedback  
-loops, falls under monotony of themes.  
-Through the consistency that emerges  
-from refinement for improved  
+loops, falls under monotony through 
+themes. Through the consistency that  
+emerges from refinement for improved  
 interpretation by the interpreter,  
 events or concepts expressed through  
 natural language that may not have  
@@ -1308,7 +1308,7 @@ long chain of feedback loops dedicates
 itself to. So the activities revolving  
 around the points of origination also  
 fall under the umbrella of monotony  
-of themes.
+through themes.
 
 The phrase "natural language" usually  
 refers to languages with wide adopters  
@@ -1324,7 +1324,7 @@ probably better measured in terms of
 the mutations that have occurred rather  
 than the similarities that exist then  
 and now. The reasoning is that the  
-concept of monotony of themes  
+concept of monotony through themes  
 implemented by the long chain of  
 feedback loops would convolute and  
 distort the past and present "natural",  
