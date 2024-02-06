@@ -1290,22 +1290,25 @@ trials and errors.
 The long chain, comprised of feedback  
 loops, falls under monotony of themes.  
 Through the consistency that emerges  
-from refinement for improved interpretation  
-by the interpreter, events or concepts  
-expressed through natural language that  
-may not have originally carried any  
-semblance to one another are then attached  
-to each other through the forging of  
-parallelism. The discovery and maintainence  
-of focus on the points of origination, which  
-may change in qualities or quantities  
-over time, that which allow for relatability  
-of different communication through natural  
-language is a task that the long chain of  
-feedback loops dedicates itself to. So  
-the activities revolving around the points  
-of origination also fall under the umbrella  
-of monotony of themes.
+from refinement for improved  
+interpretation by the interpreter,  
+events or concepts expressed through  
+natural language that may not have  
+originally carried any semblance to  
+one another are then attached to each  
+other through the forging of  
+parallelism. The discovery and  
+maintenance of focus on the points  
+of origination, which may change in  
+qualities or quantities over time,  
+that which allow for relatability of  
+different communication through  
+natural language is a task that the  
+long chain of feedback loops dedicates  
+itself to. So the activities revolving  
+around the points of origination also  
+fall under the umbrella of monotony  
+of themes.
 
 The phrase "natural language" usually  
 refers to languages with wide adopters  
@@ -1321,12 +1324,13 @@ probably better measured in terms of
 the mutations that have occurred rather  
 than the similarities that exist then  
 and now. The reasoning is that the  
-concept of monotony of themes implemented  
-by the long chain of feedback loops  
-would convolute and distort the past   
-and present "natural", leading to  
-errors such as delusion of similarity  
-and false or overabundant parallelism.  
+concept of monotony of themes  
+implemented by the long chain of  
+feedback loops would convolute and  
+distort the past and present "natural",  
+leading to errors such as delusion of  
+similarity and false or overabundant  
+parallelism.  
 
 --------------------------------------------------------------------------------------------------------------
 
