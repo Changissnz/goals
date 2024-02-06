@@ -1136,12 +1136,30 @@ of the great drivers for deception.
 It is fair to say there are as many  
 methodologies devised to detect friend,  
 foe, or stranger as to conceal  
-allegiance. 
+allegiance due to jealous inclinations.
 
 A cunning jealousy exacerbates present  
 problems, morphing those problems into  
 greater problems through systematic  
-destabilization. 
+destabilization. But to clarify, pride  
+can also do these things, but jealousy  
+goes about it in a more underhanded  
+way, because jealousy is not pride.  
+Pride is the incumbent, the  
+established, the powerful through  
+merit of both mind and body. Jealousy  
+lags behind. There are many losers,  
+but jealousy does not accept its  
+position until its death. When pride  
+continues waving its superior stance  
+to jealousy, jealousy becomes even  
+more jealous. A jealousy that  
+thrives is a jealousy that will  
+continue its campaign, first to  
+dethrone and then to be the new  
+pride. And then it is no longer  
+jealousy but pride, at least for  
+some time. 
 
 Much can be said and believed about  
 those that embrace jealousy into their  
