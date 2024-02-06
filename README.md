@@ -1173,6 +1173,26 @@ is one of the seven deadly sins.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# There is No Need for Education 
+
+When education is a system, and  
+the person does not feel they would  
+benefit by passing through that  
+system as an input variable. The  
+passing of the input variable into  
+an education system induces changes  
+into the input variable. What is  
+interesting is that those changes  
+and the initial state of the input  
+variable are then reflected back  
+onto the education system, causing  
+the education system to be somewhat  
+different than what it was originally,  
+before the person passed through  
+that education system. 
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
