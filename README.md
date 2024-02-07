@@ -1351,24 +1351,24 @@ and fulfillment.
 
 # Not a Promotion, Not a Flex
 
-You think it is a promotion borne 
-from selfishness, or a flex to 
+You think it is a promotion borne   
+from selfishness, or a flex to  
 exhibit strength. 
 
-It may be from your eyes. From 
+It may be from your eyes. From  
 your eyes, a challenge, this  
-promotion or flex, for it makes 
+promotion or flex, for it makes  
 no difference to you, that ignites  
 a flame inside you not to buy  
-into the message, but to dish out 
+into the message, but to dish out  
 your own flame. 
 
-Herein lies the generalization of
-the struggles for influence or 
+Herein lies the generalization of  
+the struggles for influence or  
 expression or satisfaction. The  
-explanations and examples, amiss,  
-for there are too many and 
-exponentially many more views. 
+explanations and examples, amiss,    
+for there are too many and  
+exponentially many more views.  
 
 --------------------------------------------------------------------------------------------------------------
 
