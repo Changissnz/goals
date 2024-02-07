@@ -1334,6 +1334,21 @@ parallelism.
 
 --------------------------------------------------------------------------------------------------------------
 
+# Lost For Words
+
+If you are in this state and it is  
+crucial for you to decide and act,  
+and one of the elements most  
+necessary for enabling this decision  
+are words, then will words really  
+set things straight? 
+
+A problem in the triangle of  
+initiative, mind-to-body translation,  
+and fulfillment. 
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
