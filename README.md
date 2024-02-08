@@ -1217,7 +1217,7 @@ or experiences, and these parallels
 are forged through the craft of  
 monotonization. Some processes  
 that manifest themselves differently  
-but rests on the same sources  
+but rest on the same sources  
 can also be greatly and positively  
 related to one another through  
 explicit emphasis of the equality  
