@@ -1417,7 +1417,7 @@ impact.
 # A Skeleton in the Closet
 
 In the modern day is saved multiple  
-times on databases, and treated like  
+times across databases, and treated like  
 "business as usual". 
 
 --------------------------------------------------------------------------------------------------------------
