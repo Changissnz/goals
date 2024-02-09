@@ -1407,6 +1407,21 @@ of them all, a true hero to the people.
 
 --------------------------------------------------------------------------------------------------------------
 
+# Negating Their Intelligence
+
+By planning for a future devoid of their  
+impact. 
+
+--------------------------------------------------------------------------------------------------------------
+
+# A Skeleton in the Closet
+
+In the modern day is saved multiple  
+times on databases, and treated like  
+"business as usual". 
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
