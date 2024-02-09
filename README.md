@@ -1400,6 +1400,11 @@ Cut off the anchors and dump excess
 weight. It is time to sail (if the goal  
 is to sail). 
 
+Believe every word of this. Put all  
+your hopes and dreams into these words,  
+and see yourself as the reigning champion  
+of them all, a true hero to the people. 
+
 --------------------------------------------------------------------------------------------------------------
 
 Copyright 2024 Richard Pham  
