@@ -1437,8 +1437,8 @@ additional time.
 
 # It was Nasty
 
-And your politeness really 
-worked. 
+And your politeness really  
+worked, like a tool.  
 
 --------------------------------------------------------------------------------------------------------------
 
