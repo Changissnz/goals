@@ -1386,6 +1386,22 @@ to move as one?
 
 --------------------------------------------------------------------------------------------------------------
 
+# The Secret To Winning
+
+Get a lot of backing from other human  
+beings. Acquire resources to make up  
+for whatever physical deficits or  
+inadequancies (if you are already so  
+strong). Send powerful messages. Use  
+a playbook written by the most  
+experienced and wisest playwrights.  
+
+Cut off the anchors and dump excess  
+weight. It is time to sail (if the goal  
+is to sail). 
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
