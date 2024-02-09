@@ -1428,6 +1428,13 @@ And I'm glad you peaked out then.
 
 --------------------------------------------------------------------------------------------------------------
 
+# All About You
+
+And this is to remind you one  
+additional time. 
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
