@@ -1448,6 +1448,13 @@ Eats random shit.
 
 --------------------------------------------------------------------------------------------------------------
 
+# To Make For a Lost Cause
+
+Means someone goes on their own  
+merry way.
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
