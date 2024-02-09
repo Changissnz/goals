@@ -1422,6 +1422,12 @@ times on databases, and treated like
 
 --------------------------------------------------------------------------------------------------------------
 
+# High School is Over
+
+And I'm glad you peaked out then. 
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
