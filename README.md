@@ -1391,7 +1391,7 @@ to move as one?
 Get a lot of backing from other human  
 beings. Acquire resources to make up  
 for whatever physical deficits or  
-inadequancies (if you are already so  
+inadequacies (if you are already so  
 strong). Send powerful messages. Use  
 a playbook written by the most  
 experienced and wisest playwrights.  
