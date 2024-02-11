@@ -1603,6 +1603,64 @@ are to be sold short.
 
 --------------------------------------------------------------------------------------------------------------
 
+# Insecurity Apparatus
+
+Most people are familiar with the  
+concept of the security apparatus.  
+Without the security apparatus,  
+comprised of the various police  
+forces, civilian networking, and  
+capital management, there is  
+obviously a lack of security for  
+some people.
+
+Insecurity apparatuses are  
+essentially the weaponization of  
+components of the security apparatus  
+against those that were originally  
+designated for protection by the  
+security apparatus.  
+
+The shifty nature of human to  
+human alliances, relations that  
+depend on long-lasting  
+responsibilities and the upholding  
+of designated roles, necessitates  
+questions to be asked on what  
+exactly is the security apparatus  
+and how such a vast concept  
+actualized should have any real  
+guarantees independent of the  
+human alliances of the human  
+beings that the apparatus is  
+or was (if it becomes an  
+insecurity apparatus) catered  
+to defend. 
+
+A crucial aspect of the security  
+apparatus is its incredibly  
+conservative nature. Loss is  
+a negative metric when used to   
+analyze the effectiveness of a  
+security apparatus. And this  
+loss takes forms in ways  
+including theft of physical  
+objects, destruction of physical  
+objects, loss or damage to life,  
+as well as social arrangements  
+and environments intended to  
+deprive certain humans of  
+their capabilities and pursuits.  
+The conservation that a security  
+apparatus seeks is antithetical  
+to the insecurity apparatus  
+that it can metastasize into,   
+due to the whims and strategies   
+of those inside or out of the  
+security apparatus. 
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
