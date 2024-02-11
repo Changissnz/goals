@@ -1592,14 +1592,14 @@ that are individualistic.
 
 # Short-Sold
 
-An individual does not realize how 
-far they can go, given their natural 
-abilities, efforts, and socio-economic 
-support until they can go no longer. 
-And during these travels this individual 
-takes, they must acknowledge to themselves 
-every once in a while doubts on if they 
-are to be sold short. 
+An individual does not realize how  
+far they can go, given their natural  
+abilities, efforts, and socio-economic  
+support until they can go no longer.  
+And during these travels this individual  
+takes, they must acknowledge to themselves  
+every once in a while doubts on if they  
+are to be sold short.  
 
 --------------------------------------------------------------------------------------------------------------
 
