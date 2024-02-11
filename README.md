@@ -1550,7 +1550,7 @@ and practices have stronger likelihoods
 of being recognized as socially  
 objective than values placed on their  
 psyche and capabilities. Comparative  
-analysis takes measures such as 
+analysis takes measures such as  
 these into account and attempts to  
 draw "distinguishing lines of  
 recognition" between a person and others.  
