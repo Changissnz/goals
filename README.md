@@ -1504,60 +1504,65 @@ fallacies of their conception at least
 equal to the misconception that they  
 are indeed an individual.  
 
-One metric for gauging the individuality  
-of a person is the strength of arguments  
-against the aims of their volition. A  
-person may in fact be dismissed as an  
-individual due to the strength of  
-arguments against their volition, when  
-the person if considered in a context  
+One metric for gauging the  
+individuality of a person is the  
+strength of arguments against the  
+aims of their volition. A person may  
+in fact be dismissed as an individual  
+due to the strength of arguments  
+against their volition, when the  
+person if considered in a context  
 devoid of other nouns (such as other  
 persons) can in fact be deemed an  
 individual. And these arguments may  
-rest on identity, ego, social arrangements,  
-order, amongst others. To gauge the  
-strength of arguments against a person's  
-individuality requires an astute  
-assessment of their repressive and  
-suppressive effects on the person's  
-expression and existence amongst others.  
-And such repressive and suppressive  
-effects must be observed through the   
-lens of scenario modelling, divergent  
+rest on identity, ego, social  
+arrangements, order, amongst others.  
+To gauge the strength of arguments  
+against a person's individuality  
+requires an astute assessment of  
+their repressive and suppressive  
+effects on the person's expression  
+and existence amongst others. And  
+such repressive and suppressive  
+effects must be observed through the  
+lens of scenario modelling, divergent   
 behavior, and the strength and nature  
 of relations between the person and  
 other persons.
 
 Another metric is one that rests on  
-comparative analysis, but this metric   
-is related to the last concept regarding  
-the observation of repressive and  
-suppressive effects of arguments against  
-a person's individuality. However,  
-comparative analysis in this form does  
-not necessarily take arguments against  
+comparative analysis, but this metric     
+is related to the last concept 
+regarding the observation of 
+repressive and suppressive effects 
+of arguments against a person's 
+individuality. However, comparative 
+analysis in this form does not 
+necessarily take arguments against  
 a person's individuality into account.  
 It strives to use relevant information  
-in the form of measures deemed "socially  
-objective", agreed upon by a consensus  
-of those both informed and representatively  
-credible. Measures of a person's appearances,   
-genealogy, and practices have stronger  
-likelihoods of being recognized as  
-socially objective than values placed on  
-their psyche and capabilities. Comparative   
-analysis takes these measures  
-such as these into account and attempts  
-to draw "distinguishing lines of  
+in the form of measures deemed 
+"socially objective", agreed upon by 
+a consensus of those both informed 
+and representatively credible. Measures 
+of a person's appearances, genealogy, 
+and practices have stronger likelihoods 
+of being recognized as socially 
+objective than values placed on their 
+psyche and capabilities. Comparative   
+analysis takes these measures such 
+as these into account and attempts to 
+draw "distinguishing lines of 
 recogntion" between a person and others.  
-The objectivity wanted through comparative   
-analysis places limits on the metric  
-itself since the conducting of studies   
-cannot go in-depth past a point into  
-a person without mentioning the nature of  
-arguments against the person's individuality  
-that is already discussed in the previous  
-paragraph concerning a different metric.  
+The objectivity wanted through 
+comparative analysis places limits on 
+the metric itself since the conducting 
+of studies cannot go in-depth past a 
+point into a person without mentioning 
+the nature of arguments against the 
+person's individuality that is already 
+discussed in the previous paragraph 
+concerning a different metric.  
 
 To call any arbitrary person an individual  
 would have a strong likelihood of dispute  
