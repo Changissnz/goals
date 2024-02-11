@@ -1553,7 +1553,7 @@ psyche and capabilities. Comparative
 analysis takes measures such as 
 these into account and attempts to  
 draw "distinguishing lines of  
-recogntion" between a person and others.  
+recognition" between a person and others.  
 The objectivity wanted through  
 comparative analysis places limits on  
 the metric itself since the conducting  
