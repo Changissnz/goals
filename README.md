@@ -1532,56 +1532,61 @@ other persons.
 
 Another metric is one that rests on  
 comparative analysis, but this metric     
-is related to the last concept 
-regarding the observation of 
-repressive and suppressive effects 
-of arguments against a person's 
-individuality. However, comparative 
-analysis in this form does not 
+is related to the last concept  
+regarding the observation of  
+repressive and suppressive effects  
+of arguments against a person's  
+individuality. However, comparative  
+analysis in this form does not  
 necessarily take arguments against  
 a person's individuality into account.  
 It strives to use relevant information  
-in the form of measures deemed 
-"socially objective", agreed upon by 
-a consensus of those both informed 
-and representatively credible. Measures 
-of a person's appearances, genealogy, 
-and practices have stronger likelihoods 
-of being recognized as socially 
-objective than values placed on their 
-psyche and capabilities. Comparative   
-analysis takes these measures such 
-as these into account and attempts to 
-draw "distinguishing lines of 
+in the form of measures deemed  
+"socially objective", agreed upon by  
+a consensus of those both informed  
+and representatively credible. Measures  
+of a person's appearances, genealogy,  
+and practices have stronger likelihoods  
+of being recognized as socially  
+objective than values placed on their  
+psyche and capabilities. Comparative  
+analysis takes these measures such  
+as these into account and attempts to  
+draw "distinguishing lines of  
 recogntion" between a person and others.  
-The objectivity wanted through 
-comparative analysis places limits on 
-the metric itself since the conducting 
-of studies cannot go in-depth past a 
-point into a person without mentioning 
-the nature of arguments against the 
-person's individuality that is already 
-discussed in the previous paragraph 
+The objectivity wanted through  
+comparative analysis places limits on  
+the metric itself since the conducting  
+of studies cannot go in-depth past a  
+point into a person without mentioning   
+the nature of arguments against the  
+person's individuality that is already  
+discussed in the previous paragraph  
 concerning a different metric.  
 
-To call any arbitrary person an individual  
-would have a strong likelihood of dispute  
-given the previous two metrics mentioned.  
-The person may not, based on things such  
-as their personal values and behavior  
-and relations, be an individual. But the  
-person can still be an individualist,  
-a believer in the ideal of individualism.  
-The threshold for a person to be an  
-individualist is, in many ways, lower than  
-that to be an individual. A person would  
-simply have to carry with them a strong  
-belief in individualism. And as for the  
-question of their ability and actualization  
-in upholding their personal belief in  
+To call any arbitrary person an  
+individual would have a strong likelihood  
+of dispute given the previous two metrics  
+mentioned. The person may not, based on  
+things such as their personal values and  
+behavior and relations, be an individual.  
+But the person can still be an  
+individualist, a believer in the ideal  
+of individualism. The threshold for a  
+person to be an individualist is, in  
+many ways, lower than that to be an  
+individual. A person would simply have  
+to carry with them a strong belief in  
+individualism. And as for the question  
+of their ability and actualization in  
+upholding their personal belief in  
 individualism, it would have to be  
 determined under metrics such as those  
-two previously mentioned. 
+two previously mentioned. A person that  
+may score low in some metrics of  
+individualism but still exhibit other  
+appearances, behavior, and actions  
+that are individualistic.
 
 --------------------------------------------------------------------------------------------------------------
 
