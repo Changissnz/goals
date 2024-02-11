@@ -1455,6 +1455,131 @@ merry way.
 
 --------------------------------------------------------------------------------------------------------------
 
+# There Are No Individuals, Only Individualists
+
+Individualism is one of the many  
+ideals that human beings have come  
+up with. And this particular idea is  
+very appealing in theory, especially  
+for those that place low emphasis on  
+the permanence of social bonds and  
+other forms of association such as  
+financial independence that interfere  
+with their way of life and expression.  
+But a fellow human being has a degree  
+of influence proportional to their  
+actions, social connectivity, and  
+physical distance concerning an  
+individual, in turn enabling doubts  
+to be cast on what exactly sets a  
+person apart from others as an  
+individual.
+
+Individuals are ultimately human and  
+fall prey to humanistic aspects such  
+as identity, ego, social arrangements,  
+social trends, and order. Each of these  
+aspects carry with them equations in  
+the form of certainties or likelihoods  
+(if there is a lack of certainty) that  
+result in not so much the removal of  
+free will from individuals in what they  
+desire to do, or what they want to  
+represent, or what they think, but in  
+the diminishing of choices that are  
+feasible to accomplish without  
+necessary external influence, that  
+which is usually formulated in  
+structures  of other persons' inputs.  
+The phrase "to fall prey to" does  
+not necessarily refer to arbitrary  
+and inevitable losses or deprivations  
+that an individual must experience.  
+Instead, the phrase in this context  
+refers primarily to the loss of  
+individualism by the individual in  
+such a manner that to call the person  
+an individual would result in  
+fallacies of their conception at least  
+equal to the misconception that they  
+are indeed an individual.  
+
+One metric for gauging the individuality  
+of a person is the strength of arguments  
+against the aims of their volition. A  
+person may in fact be dismissed as an  
+individual due to the strength of  
+arguments against their volition, when  
+the person if considered in a context  
+devoid of other nouns (such as other  
+persons) can in fact be deemed an  
+individual. And these arguments may  
+rest on identity, ego, social arrangements,  
+order, amongst others. To gauge the  
+strength of arguments against a person's  
+individuality requires an astute  
+assessment of their repressive and  
+suppressive effects on the person's  
+expression and existence amongst others.  
+And such repressive and suppressive  
+effects must be observed through the   
+lens of scenario modelling, divergent  
+behavior, and the strength and nature  
+of relations between the person and  
+other persons.
+
+Another metric is one that rests on  
+comparative analysis, but this metric   
+is related to the last concept regarding  
+the observation of repressive and  
+suppressive effects of arguments against  
+a person's individuality. However,  
+comparative analysis in this form does  
+not necessarily take arguments against  
+a person's individuality into account.  
+It strives to use relevant information  
+in the form of measures deemed "socially  
+objective", agreed upon by a consensus  
+of those both informed and representatively  
+credible. Measures of a person's appearances,   
+genealogy, and practices have stronger  
+likelihoods of being recognized as  
+socially objective than values placed on  
+their psyche and capabilities. Comparative   
+analysis takes these measures  
+such as these into account and attempts  
+to draw "distinguishing lines of  
+recogntion" between a person and others.  
+The objectivity wanted through comparative   
+analysis places limits on the metric  
+itself since the conducting of studies   
+cannot go in-depth past a point into  
+a person without mentioning the nature of  
+arguments against the person's individuality  
+that is already discussed in the previous  
+paragraph concerning a different metric.  
+
+To call any arbitrary person an individual  
+would have a strong likelihood of dispute  
+given the previous two metrics mentioned.  
+The person may not, based on things such  
+as their personal values and behavior  
+and relations, be an individual. But the  
+person can still be an individualist,  
+a believer in the ideal of individualism.  
+The threshold for a person to be an  
+individualist is, in many ways, lower than  
+that to be an individual. A person would  
+simply have to carry with them a strong  
+belief in individualism. And as for the  
+question of their ability and actualization  
+in upholding their personal belief in  
+individualism, it would have to be  
+determined under metrics such as those  
+two previously mentioned. 
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
