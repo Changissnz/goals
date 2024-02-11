@@ -1582,7 +1582,7 @@ of their ability and actualization in
 upholding their personal belief in  
 individualism, it would have to be  
 determined under metrics such as those  
-two previously mentioned. A person that  
+two previously mentioned. A person  
 may score low in some metrics of  
 individualism but still exhibit other  
 appearances, behavior, and actions  
