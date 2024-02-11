@@ -1661,6 +1661,39 @@ security apparatus.
 
 --------------------------------------------------------------------------------------------------------------
 
+# I Am Roman, I Am Legion
+
+The title is an example of  
+"There Are No Individuals,  
+Only Individualists". 
+
+Imagine yourself as a  
+well-trained and well-learned  
+one, skilled in the ways of  
+order, efficiency, and other  
+ways of exerting power. But  
+you know you are not that  
+special. It would defy your  
+training since you were taught  
+to fight in a unit composed  
+of multiple persons. You are  
+not really an individual when  
+in your legion, but a Roman.
+
+Hence, you are Roman, you are  
+Legion. Sure, you may have  
+individualistic features and   
+beliefs. But you do not want  
+to be entirely viewed as an  
+individual, especially by the   
+enemy. This is so that whenever   
+they try to think of you the  
+Roman, their mind is forced to   
+think about you the Legion as  
+well. 
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
