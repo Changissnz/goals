@@ -1779,7 +1779,17 @@ that can speak accurately of
 history, using a conscientious  
 style of expression on the  
 chains of human events that took  
-place in the place.  
+place in the past. Bear in mind,  
+this is not a matter of a math  
+contest or a demonstration of  
+wits and mights, but history.  
+Many might be similar to  
+Historiano when it comes to  
+history, but Historiano has  
+reputation through ancestral  
+precedence. And without  
+reputation, there is no  
+history.  
 
 Without Historiano, a descendent  
 of the family that is recognized  
