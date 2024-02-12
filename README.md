@@ -1772,7 +1772,7 @@ the moot topic of history.
 Whereas some challengers to  
 Historiano may state their  
 superiority over him due to their  
-various strengths include the  
+various strengths including the  
 art of persuasion, dramatism, and  
 performance, it is only Historiano  
 that can speak accurately of  
