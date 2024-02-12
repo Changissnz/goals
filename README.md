@@ -1694,6 +1694,18 @@ well.
 
 --------------------------------------------------------------------------------------------------------------
 
+# Set Up, Tear Down
+
+Experience these carefully  
+crafted chains of events enough  
+times, no matter your moral  
+compass or degrees of  
+intelligence, and you can  
+understand where your chances  
+and trash cans are. 
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
