@@ -1760,6 +1760,37 @@ is simple: you only live once.
 
 --------------------------------------------------------------------------------------------------------------
 
+# Silence! Historiano is Talking!
+
+Hush! Do you not recognize who that  
+is that is clearing his throat to  
+speak? It is the one and only  
+Historiano, the only candidate that  
+anyone can trust when it comes to  
+the moot topic of history.  
+
+Whereas some challengers to  
+Historiano may state their  
+superiority over him due to their  
+various strengths include the  
+art of persuasion, dramatism, and  
+performance, it is only Historiano  
+that can speak accurately of  
+history, using a conscientious  
+style of expression on the  
+chains of human events that took  
+place in the place.  
+
+Without Historiano, a descendent  
+of the family that is recognized  
+as the most powerful line of  
+historians, there would be no  
+history to discuss or listen to.  
+There would be only opinion,  
+without roots. 
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
