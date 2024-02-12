@@ -1702,7 +1702,61 @@ times, no matter your moral
 compass or degrees of  
 intelligence, and you can  
 understand where your chances  
-and trash cans are. 
+and trash cans are.  
+
+The concept is so widely used  
+that even the Python programming  
+language implements "set up, tear  
+down" in its testing procedure.  
+Testing "sets up" an environment  
+where the code to be tested can  
+be inserted as the input variable,  
+and after the code is tested,  
+Python "tears down" the setup to  
+clear memory.  
+
+The concept of "set up, tear down"  
+depends on the passivity of the  
+input variable, and in cases of  
+real life, that would be you the  
+person instead of computer code  
+for a Python test. The ethics and   
+ramifications of "testing" a person,  
+especially when they choose not to  
+pursue education or a position that  
+requires them to pass the test, are  
+typically up for debate due to  
+the convoluted nature of human  
+reasoning in regards to what is  
+a proper test for persons that  
+would ensure a proper range of  
+results upon those persons'  
+successes or failures. When the  
+results of the test have been  
+properly collected, there is  
+then the "tear down" portion.  
+In both of these portions, the  
+person that is tested is a  
+passive force in the sense that  
+they do not tamper with, let  
+alone design, the "set up" or  
+the "tear down" portions.  
+Interestingly enough, a person that  
+is able to "set up" the testing  
+for themselves can manage to  
+engineer odds more favorable  
+to their winning than before.  
+And a person that is able to  
+"tear down" a test, at arbitrary  
+points during its running, can be  
+said to be resistance, a resistive  
+force against the test.  
+
+The "set up, tear down" procedure  
+is drastically more expensive for  
+the person than the same procedure  
+used to test Python code. The reason   
+is simple: you only live once.  
 
 --------------------------------------------------------------------------------------------------------------
 
