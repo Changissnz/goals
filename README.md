@@ -1859,14 +1859,14 @@ A.I. is supposed to be able
 to predict virtually everything,  
 perhaps not with the absolute  
 accuracy that some people on  
-the perfectionist's side prefers.  
+the perfectionist's side prefer.  
 
 A.I. is also supposed to be  
 able to simulate and replicate  
 virtually everything, perhaps  
 not with the absolute accuracy  
 that some people on the  
-perfectionist's side prefers.  
+perfectionist's side prefer.  
 
 A.I. is supposed to do these  
 things by continual training  
@@ -1879,7 +1879,7 @@ authentic existence and
 thought, so goes the orthodox  
 thinking from human minds.  
 But it is supposed to mean  
-everything since it is feed  
+everything since it is fed  
 all kinds of information,  
 anything that is information.  
 
