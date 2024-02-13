@@ -1801,6 +1801,38 @@ without roots.
 
 --------------------------------------------------------------------------------------------------------------
 
+# The Playbook
+
+Ever see an actor, actress, or  
+actre say lines or do things in    
+a manner most unbefitting to  
+their "nature", if human beings  
+are predisposed to specific  
+"natures"? Note that the terms  
+"actor", "actress", and "actre"  
+are those assigned to the  
+persons that "act" and do not  
+require them to be one that  
+is professional.  
+
+Then they are doing it by a  
+playbook that they did not  
+write. For matters of  
+authenticity, they are phony.  
+
+But if the show sells enough  
+to rake in at least as much  
+money as is spent on it, "so  
+be it" is the expected answer  
+from most.
+
+Maybe they are just on drugs.  
+That is right. Taking drugs  
+and "acting" along to someone  
+else's playbook. So be it.
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
