@@ -1833,6 +1833,16 @@ else's playbook. So be it.
 
 --------------------------------------------------------------------------------------------------------------
 
+# Chain of Command
+
+Act on those orders, do not  
+fail. And the chances of  
+failure are greater the  
+more questions and doubts  
+are cast on those orders. 
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
