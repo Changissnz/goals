@@ -1544,21 +1544,21 @@ It strives to use relevant information
 in the form of measures deemed  
 "socially objective", agreed upon by  
 a consensus of those both informed  
-and representatively credible. Measures  
-of a person's appearances, genealogy,  
-and practices have stronger likelihoods  
-of being recognized as socially  
-objective than values placed on their  
-psyche and capabilities. Comparative  
-analysis takes measures such as  
-these into account and attempts to  
-draw "distinguishing lines of  
-recognition" between a person and others.  
-The objectivity wanted through  
+and representatively credible.  
+Measures of a person's appearances,  
+genealogy, and practices have stronger  
+likelihoods of being recognized as  
+socially objective than values placed  
+on their psyche and capabilities.  
+Comparative analysis takes measures  
+such as these into account and attempts  
+to draw "distinguishing lines of  
+recognition" between a person and  
+others. The objectivity wanted through  
 comparative analysis places limits on  
 the metric itself since the conducting  
 of studies cannot go in-depth past a  
-point into a person without mentioning   
+point into a person without mentioning  
 the nature of arguments against the  
 person's individuality that is already  
 discussed in the previous paragraph  
