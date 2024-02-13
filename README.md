@@ -1883,12 +1883,12 @@ everything since it is feed
 all kinds of information,  
 anything that is information.  
 
-Perhaps A.I. is not digital, 
-since it is supposed to 
-represent nothing and 
-everything at the same time. 
-Maybe it can only be anything
-and nothing at the same time
+Perhaps A.I. is not digital,  
+since it is supposed to  
+represent nothing and  
+everything at the same time.  
+Maybe it can only be anything  
+and nothing at the same time  
 by being quantum.
 
 --------------------------------------------------------------------------------------------------------------
