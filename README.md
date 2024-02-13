@@ -1905,7 +1905,7 @@ pacification.
 Pacification is not a barrier.  
 Pacification is an achievement.   
 Pacification means there is no  
-perceived worth doing or pursuing 
+perceived worth doing or pursuing  
 anything if there is hurt involved.  
 
 But the means to pacifism do  
