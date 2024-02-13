@@ -1895,17 +1895,17 @@ by being quantum.
 
 # Pacified For Good
 
-Pacification requires no words 
-of explanation once the state 
-has been achieved. Whatever 
-words that are used in pacified 
-states are to conserve the 
+Pacification requires no words  
+of explanation once the state  
+has been achieved. Whatever  
+words that are used in pacified  
+states are to conserve the  
 pacification.
 
-Pacification is not a barrier. 
-Pacification is an achievement. 
+Pacification is not a barrier.  
+Pacification is an achievement.  
 
-Pacified...
+Pacified...  
 
 --------------------------------------------------------------------------------------------------------------
 
