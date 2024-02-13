@@ -1847,8 +1847,8 @@ are cast on those orders.
 
 Speaking of "acts" that appear  
 unnatural according to what  
-should be natural according  
-the judgments of the observer,  
+should be natural by the  
+judgments of the observer,  
 there is expected to be much  
 "unnaturalness" stemming from  
 the ongoing developments in  
