@@ -1567,14 +1567,14 @@ concerning a different metric.
 To call any arbitrary person an  
 individual would have a strong likelihood  
 of dispute given the previous two metrics  
-mentioned. The person may not, based on  
-things such as their personal values and  
-behavior and relations, be an individual.  
-But the person can still be an  
-individualist, a believer in the ideal  
-of individualism. The threshold for a  
-person to be an individualist is, in  
-many ways, lower than that to be an  
+mentioned. The person may not, based  
+on things such as their personal values  
+and behavior and relations, be an  
+individual. But the person can still be  
+an individualist, a believer in the  
+ideal of individualism. The threshold  
+for a person to be an individualist is,  
+in many ways, lower than that to be an  
 individual. A person would simply have  
 to carry with them a strong belief in  
 individualism. And as for the question  
