@@ -1812,8 +1812,8 @@ are predisposed to specific
 "actor", "actress", and "actre"  
 are those assigned to the  
 persons that "act" and do not  
-require them to be one that  
-is professional.  
+require them to be  
+professional.  
 
 Then they are doing it by a  
 playbook that they did not  
@@ -1840,6 +1840,56 @@ fail. And the chances of
 failure are greater the  
 more questions and doubts  
 are cast on those orders. 
+
+--------------------------------------------------------------------------------------------------------------
+
+# A.I. Is Everything, A.I. Is Nothing
+
+Speaking of "acts" that appear  
+unnatural according to what  
+should be natural according  
+the judgments of the observer,  
+there is expected to be much  
+"unnaturalness" stemming from  
+the ongoing developments in  
+A.I. (that stands for  
+artificial intelligence). 
+
+A.I. is supposed to be able  
+to predict virtually everything,  
+perhaps not with the absolute  
+accuracy that some people on  
+the perfectionist's side prefers.  
+
+A.I. is also supposed to be  
+able to simulate and replicate  
+virtually everything, perhaps  
+not with the absolute accuracy  
+that some people on the  
+perfectionist's side prefers.  
+
+A.I. is supposed to do these  
+things by continual training  
+on information collected.  
+A.I. is bound to be artificial  
+since the "A" does stand for  
+artificial. So it is actually  
+nothing from the lens of  
+authentic existence and  
+thought, so goes the orthodox  
+thinking from human minds.  
+But it is supposed to mean  
+everything since it is feed  
+all kinds of information,  
+anything that is information.  
+
+Perhaps A.I. is not digital, 
+since it is supposed to 
+represent nothing and 
+everything at the same time. 
+Maybe it can only be anything
+and nothing at the same time
+by being quantum.
 
 --------------------------------------------------------------------------------------------------------------
 
