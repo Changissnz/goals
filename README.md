@@ -1903,7 +1903,13 @@ states are to conserve the
 pacification.
 
 Pacification is not a barrier.  
-Pacification is an achievement.  
+Pacification is an achievement.   
+Pacification means there is no  
+worth doing or pursuing anything  
+if there is hurt involved.  
+
+But the means to pacifism do  
+not constitute pacifism itself.  
 
 Pacified...  
 
