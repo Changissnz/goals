@@ -1931,7 +1931,12 @@ cases.
 
 A key point to note is that  
 insecurity operates on  
-instability. Instability is  
+instability, the lack of  
+structural integrity from  
+foundation (or lack of  
+foundation) to any other  
+connected point in the  
+structure. Instability is  
 one of the ingredients in  
 feedback loops necessary to  
 generate more if not maintain  
@@ -1978,7 +1983,7 @@ that are also served by it. In
 the second case, the differing  
 opinions coupled with roughly equal  
 magnitudes of credibility and  
-executable power leads to a  
+executable power lead to a  
 poor following in upholding the  
 categorical labelling of the  
 apparatus as one that is a  
