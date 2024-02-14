@@ -1915,6 +1915,115 @@ Pacified...
 
 --------------------------------------------------------------------------------------------------------------
 
+# Insecurity Apparatus Pt. 2
+
+The first part on the concept of  
+an insecurity apparatus defines  
+it in the terms of a metastatis  
+from a security apparatus. This  
+definition may sit poorly in  
+some contexts, since the term  
+"metastatis" does signify a  
+change clearly geared towards  
+malicious activity with aims  
+that are fatalistic in some  
+cases. 
+
+A key point to note is that  
+insecurity operates on  
+instability. Instability is  
+one of the ingredients in  
+feedback loops necessary to  
+generate more if not maintain  
+insecurity. And insecurity then  
+manifests itself as behaviorial  
+anomalies (expressed outward)  
+or self-contained afflictions.  
+And suppose that if "order"  
+is to "constant", then  
+"insecurity" is to "chaos".  
+
+Insecurity, from the perspective  
+of those deemed threats that have  
+to experience what they perceive  
+as harmful effects eliciting from  
+the apparatus after it has morphed  
+from a security to an insecurity  
+apparatus, is then prone to less  
+than objective measures due to  
+differing opinions from those  
+that live and think by different  
+views and have different labels  
+assigned to them by the apparatus   
+that then treats them differently  
+according to those labels.  
+
+For simplicity, not for perfection  
+for perfection requires a fine  
+grain knowledge and method of  
+operation for all sub-problems  
+and those sub-problems'  
+exemplifications of any problem  
+that the apparatus is designed to   
+solve, an insecurity apparatus  
+is easier judged to be an  
+insecurity apparatus birthed from  
+a security apparatus than an  
+apparatus that is an insecurity  
+apparatus from the perspectives  
+of some of those that are served  
+by it but a security apparatus  
+from the perspectives of others  
+that are also served by it. In  
+the second case, the differing  
+opinions coupled with roughly equal  
+magnitudes of credibility and  
+executable power leads to a  
+poor following in upholding the  
+categorical labelling of the  
+apparatus as one that is a  
+security apparatus or an  
+insecurity apparatus. 
+
+Metrics to argue for this preference  
+in definition revolve around the  
+constants guaranteed by the  
+apparatus in operation after  
+its supposed "metastatis into  
+an insecurity apparatus". An  
+"insecurity apparatus" guarantees  
+less overall control for those  
+it serves, and this includes  
+both those that do not have  
+any executive authority over  
+the apparatus as well as those   
+that have operating control  
+over the apparatus. This loss   
+of control can be measured  
+after observation of the  
+diminishing degrees of freedom  
+guaranteed alongside the  
+magnitude of risks involved  
+in attempting to either  
+execute or remove specific  
+freedoms from specific individuals  
+served by the apparatus. If  
+the concept of the constant is  
+to be taken as an undeniable  
+aspect of the security apparatus,  
+then patterns such as rapidly  
+changing agendas, unpredictable  
+changes in leadership, and  
+unforeseen crises that can have  
+their sources externally or  
+internally are not only not  
+the desired outcomes of a  
+security apparatus but also  
+not the actual outcomes caused  
+or enabled by it.
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
