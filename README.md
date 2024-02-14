@@ -1954,9 +1954,9 @@ to experience what they perceive
 as harmful effects eliciting from  
 the apparatus after it has morphed  
 from a security to an insecurity  
-apparatus, is then prone to less  
-than objective measures due to  
-differing opinions from those  
+apparatus against them, is then  
+prone to less than objective measures  
+due to differing opinions from those  
 that live and think by different  
 views and have different labels  
 assigned to them by the apparatus   
@@ -2025,7 +2025,23 @@ internally are not only not
 the desired outcomes of a  
 security apparatus but also  
 not the actual outcomes caused  
-or enabled by it.
+or enabled by it. On the other  
+hand, outcomes generated from  
+the competencies and intentions  
+of an insecurity apparatus tend  
+to fall short of aims that that  
+same apparatus declared, whether  
+privately or publicly, to be  
+imperative to achieve.  
+
+These notions on what "security"
+and "insecurity" is with regards
+to the apparatus do not take into 
+full consideration the yearnings 
+stemming from those served by 
+the apparatus, who may each have 
+specific wants that the apparatus 
+cannot cater to them. 
 
 --------------------------------------------------------------------------------------------------------------
 
