@@ -2034,13 +2034,13 @@ same apparatus declared, whether
 privately or publicly, to be  
 imperative to achieve.  
 
-These notions on what "security"
-and "insecurity" is with regards
-to the apparatus do not take into 
-full consideration the yearnings 
-stemming from those served by 
-the apparatus, who may each have 
-specific wants that the apparatus 
+These notions on what "security"  
+and "insecurity" is with regards  
+to the apparatus do not take into  
+full consideration the yearnings  
+stemming from those served by  
+the apparatus, who may each have  
+specific wants that the apparatus  
 cannot cater to them. 
 
 --------------------------------------------------------------------------------------------------------------
