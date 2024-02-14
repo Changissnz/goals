@@ -1919,11 +1919,11 @@ Pacified...
 
 The first part on the concept of  
 an insecurity apparatus defines  
-it in the terms of a metastatis  
+it in the terms of a metastasis  
 from a security apparatus. This  
 definition may sit poorly in  
 some contexts, since the term  
-"metastatis" does signify a  
+"metastasis" does signify a  
 change clearly geared towards  
 malicious activity with aims  
 that are fatalistic in some  
@@ -1989,7 +1989,7 @@ Metrics to argue for this preference
 in definition revolve around the  
 constants guaranteed by the  
 apparatus in operation after  
-its supposed "metastatis into  
+its supposed "metastasis into  
 an insecurity apparatus". An  
 "insecurity apparatus" guarantees  
 less overall control for those  
