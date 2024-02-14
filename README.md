@@ -2006,7 +2006,7 @@ that have operating control
 over the apparatus. This loss   
 of control can be measured  
 after observation of the  
-diminishing degrees of freedom  
+diminished degrees of freedom  
 guaranteed alongside the  
 magnitude of risks involved  
 in attempting to either  
