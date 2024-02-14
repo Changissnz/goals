@@ -2035,7 +2035,7 @@ privately or publicly, to be
 imperative to achieve.  
 
 These notions on what "security"  
-and "insecurity" is with regards  
+and "insecurity" are with regards  
 to the apparatus do not take into  
 full consideration the yearnings  
 stemming from those served by  
