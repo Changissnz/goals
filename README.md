@@ -2041,7 +2041,7 @@ full consideration the yearnings
 stemming from those served by  
 the apparatus, who may each have  
 specific wants that the apparatus  
-cannot cater to them. 
+cannot cater to. 
 
 --------------------------------------------------------------------------------------------------------------
 
