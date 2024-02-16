@@ -2117,11 +2117,11 @@ those that do not support the
 security apparatus, in turn  
 deeming the apparatus an insecurity  
 apparatus by the one-or-the-other  
-assignment of dichotomies. In this  
-dichotomization, the first category  
-are those that are "served" by the  
-security apparatus, perhaps even  
-"serving" the security apparatus  
+assignment through dichotomies. In  
+this dichotomization, the first  
+category are those that are "served"  
+by the security apparatus, perhaps  
+even  "serving" the security apparatus  
 by operating it. The second category  
 would be those that are "dealt" by  
 the security apparatus, in which  
