@@ -2133,7 +2133,7 @@ also not have their judgments
 considered by the security apparatus  
 so that the security apparatus can  
 modify its approaches. Specifically,  
-introspection taken by the security 
+introspection taken by the security  
 apparatus does not consider the  
 judgments of this second category  
 based on their perspectives and  
@@ -2162,7 +2162,7 @@ correctness from the actions taken
 leads to corrective measures  
 during introspective phases  
 of operation that take place  
-after phases of execution.
+after phases of execution.  
 Corrective measures include expressing  
 those actions as actions done for  
 security when there is contradiction  
