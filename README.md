@@ -2213,8 +2213,8 @@ objective in terms of theoretics
 is that there is not much to be  
 learned that can then be used  
 for corrective purposes without  
-the need for opposite and equal  
-efforts spearheaded by  
+calls for the need for opposite  
+and equal efforts spearheaded by  
 anti-corrective purposes.  
 
 --------------------------------------------------------------------------------------------------------------
