@@ -2045,6 +2045,135 @@ cannot cater to.
 
 --------------------------------------------------------------------------------------------------------------
 
+# Insecurity Apparatus Pt. 3
+
+There are bound to be arguments  
+abound for what an insecurity  
+apparatus is according to the  
+two proposed definitions in the  
+previous part. An apparatus  
+could be judged as an insecurity  
+apparatus by some but not others  
+that it serves. The basis behind  
+this definition would result in  
+conflicting differences in  
+labelling of the apparatus.  
+These differences are due to  
+inversions of the dichotomized  
+understanding and perhaps experience  
+of security and insecurity from  
+a reference point, meaning one  
+or some that are served by the  
+apparatus, by one or more other  
+points. The problem of inverted  
+judgments of dichotomies in the  
+context of an apparatus that is  
+supposed to serve for security is  
+usually promoted by overly broad  
+approaches to understanding, in  
+which the understanding that is  
+judged to be flawed by the other  
+side is nevertheless used to  
+act upon by those that stand  
+by it if not thought of it.  
+This specific category of approaches  
+has the characteristic trait of  
+rushed conjectures to dichotomize,  
+in order to fully specialize  
+for the specific problem, with  
+the purposes of first to be able  
+to conveniently express the  
+differences between any two  
+that complements the whole of any  
+one, then to use the confidence  
+and focus from that convenient  
+expression to act solely for the  
+initiative. In the context of  
+a security apparatus, this leads  
+to viewpoints that may not align  
+based on both the specific and  
+differing results that are used  
+as proof and also the understanding  
+that is attributed as the cause of the  
+apparatus being not one of security  
+but insecurity.
+
+The issue with the definition of  
+an insecurity apparatus resting  
+on the judgments of those it serves  
+can be resolved by a simple approach,  
+albeit this simple approach would  
+result in an equal if not greater  
+(expected) response against the  
+apparatus due to its being judged  
+as that that elicits insecurity.  
+The simple approach involves  
+constructing a dichotomy between  
+those that support the security  
+apparatus, perhaps because the  
+apparatus would offer them security  
+beyond a reasonable doubt, and  
+those that do not support the  
+security apparatus, in turn  
+deeming the apparatus a security  
+apparatus. In this dichotomization,  
+the first category are those that  
+are "served" by the security apparatus,  
+perhaps even "serving" the security  
+apparatus by operating it. The  
+second category would be those  
+that are "dealt" with the security  
+apparatus, in which their judgments  
+of the apparatus may be either  
+that it is for or against security  
+but the apparatus would not place  
+emphasis on "security measures"  
+for them. The second category would  
+also not have their judgments  
+considered by the security apparatus  
+so that the security apparatus can  
+modify its approaches. Specifically,  
+introspection taken by the security 
+apparatus does not consider the  
+judgments of this second category  
+based on their perspectives and  
+experiences due to said apparatus.
+
+Focusing on the other definition  
+of an insecurity apparatus, one  
+that is judged to be so by its  
+metastasis from a security  
+apparatus, the prime issue is  
+recognizing the transitioning (metastasis)  
+of the security apparatus to an insecurity  
+apparatus. This would be classified  
+as a judgment problem, complicated  
+by magnitudes correlating to  
+the nature of secrecy involved in  
+the security aimed for by the  
+apparatus. 
+
+Both definitions of an insecurity  
+apparatus fall short of the  
+specificity necessary for  
+real-world actualization. The  
+separation of the theoretical  
+correctness from the actions taken  
+leads to corrective measures  
+during introspective phases  
+of operation that take place  
+after phases of execution.
+Corrective measures include expressing  
+those actions as actions done for  
+security when there is contradiction  
+expressed by those served by the  
+apparatus and abrupt changes in  
+security practices that are not  
+judged as rational or amenable by  
+some. 
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
