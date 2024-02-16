@@ -2116,29 +2116,30 @@ beyond a reasonable doubt, and
 those that do not support the  
 security apparatus, in turn  
 deeming the apparatus an insecurity  
-apparatus. In this dichotomization,  
-the first category are those that  
-are "served" by the security apparatus,  
-perhaps even "serving" the security  
-apparatus by operating it. The  
-second category would be those  
-that are "dealt" with the security  
-apparatus, in which their judgments  
-of the apparatus may be either  
-that it is for or against security  
-but the apparatus would not place  
-emphasis on "security measures"  
-for them. The second category would  
-also not have their judgments  
-considered by the security apparatus  
-so that the security apparatus can  
-modify its approaches towards their  
-wants. Specifically, introspection  
-taken by the security apparatus  
-does not consider the judgments  
-of this second category based on  
-their perspectives and experiences  
-due to said apparatus.
+apparatus by the one-or-the-other 
+assignment of dichotomies. In this 
+dichotomization, the first category 
+are those that are "served" by the  
+security apparatus, perhaps even 
+"serving" the security apparatus 
+by operating it. The second category 
+would be those that are "dealt" by  
+the security apparatus, in which  
+their judgments of the apparatus  
+may be either that it is for or  
+against security but the apparatus  
+would not place emphasis on "security  
+measures" for them. The second  
+category would also not have their  
+judgments considered by the security  
+apparatus so that the security  
+apparatus can modify its approaches  
+towards their wants. Specifically,  
+introspection taken by the security  
+apparatus does not consider the  
+judgments of this second category  
+based on their perspectives and  
+experiences due to said apparatus.
 
 Focusing on the other definition  
 of an insecurity apparatus, one  
