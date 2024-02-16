@@ -2132,12 +2132,13 @@ for them. The second category would
 also not have their judgments  
 considered by the security apparatus  
 so that the security apparatus can  
-modify its approaches. Specifically,  
-introspection taken by the security  
-apparatus does not consider the  
-judgments of this second category  
-based on their perspectives and  
-experiences due to said apparatus.
+modify its approaches towards their  
+wants. Specifically, introspection  
+taken by the security apparatus  
+does not consider the judgments  
+of this second category based on  
+their perspectives and experiences  
+due to said apparatus.
 
 Focusing on the other definition  
 of an insecurity apparatus, one  
