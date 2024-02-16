@@ -2176,6 +2176,49 @@ some.
 
 --------------------------------------------------------------------------------------------------------------
 
+# To Make Efforts Lost Hurt Right Down to the Core 
+
+In the cases of extreme persistence,  
+maybe this objective is the only  
+way to make a specific person 
+understand the errors of their 
+ways. 
+
+But generally speaking, such  
+efforts are subject to opposing  
+views such as that they are cruel  
+and unusual, in other words,  
+unnecessary although those that  
+enact the losses may derive an  
+atypical magnitude of pleasure  
+from doing those things. 
+
+To take routes with this objective  
+as the aim, expect there to be  
+not much friendship that can  
+foster with those inflicted  
+without them becoming unusually  
+pretentious due to their  
+defensive psyche bolstered  
+towards distrust against the  
+inflictor. This is if their  
+will is not broken. If their  
+will is broken, can you expect  
+them to act as they themselves  
+without your impact and influence?  
+You cannot.  
+
+The issue with speaking of this  
+objective in terms of theoretics  
+is that there is not much to be  
+learned that can then be used  
+for corrective purposes without  
+the need for opposite and equal  
+efforts spearheaded by  
+anti-corrective purposes.  
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
