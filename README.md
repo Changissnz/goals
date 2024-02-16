@@ -2115,7 +2115,7 @@ apparatus would offer them security
 beyond a reasonable doubt, and  
 those that do not support the  
 security apparatus, in turn  
-deeming the apparatus a security  
+deeming the apparatus an insecurity  
 apparatus. In this dichotomization,  
 the first category are those that  
 are "served" by the security apparatus,  
