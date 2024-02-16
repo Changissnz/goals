@@ -2179,9 +2179,9 @@ some.
 # To Make Efforts Lost Hurt Right Down to the Core 
 
 In the cases of extreme persistence,  
-maybe this objective is the only  
-way to make a specific person 
-understand the errors of their 
+maybe this objective is the only   
+way to make a specific person  
+understand the errors of their  
 ways. 
 
 But generally speaking, such  
