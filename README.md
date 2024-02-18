@@ -2219,6 +2219,134 @@ anti-corrective purposes.
 
 --------------------------------------------------------------------------------------------------------------
 
+# The References 
+
+Ever since I was in elementary  
+school, I have always thought of  
+the United States as a country that  
+turned into a modern-day Rome.  
+
+One big reason why is that I  
+believe the nation is very  
+propagandistic. Now I don't  
+want to take another step  
+and say the country acts on  
+false principles and worships  
+false prophets. What I am  
+saying is that the American  
+spirit, fostered by initiatives  
+such as valuing debate over  
+labor, theatrics based on  
+Greco-Roman tradition, and  
+upholding a secrecy that forever  
+escapes the front pages is  
+part of the "propaganda  
+machine". I am not saying  
+that the concept of the  
+"propaganda machine" is unique  
+to this nation, but rather it  
+is effective enough to serve  
+the interests of more than  
+half of the citizens, by a  
+rough estimate. Ancient Rome  
+had a very effective propaganda  
+machine. I do not feel the need  
+to use sources on this point.  
+Instead, take a look at the  
+information on the regions  
+surrounding the Mediterranean  
+during the Roman era. The  
+instability of the so-called  
+Roman Empire that occurred after  
+its conversion from that of a  
+"republic" is also reflected in  
+the remnants from and legacy of  
+its "propaganda machine". During  
+those eras deemed declines, there  
+were actors that took precedence  
+over the generational offspring  
+from the original Romans that founded  
+the Republic. There are different  
+kinds of glories attached to those  
+actors that form a separate identity  
+against the Roman Empire, or at  
+least the imperial leadership of  
+the Roman Empire.
+
+The United States, from my 
+perspective in this modern-day, 
+seems to have ideations of decline 
+on top of whatever problems it 
+really has. These ideations of  
+decline are discussed daily on  
+the front page and by citizens  
+of all stripes and colors. And  
+this year, 2024 the election year,  
+has amplified this activity. 
+
+Another big reason why I continue 
+to validate my views that the 
+United States is very much a 
+reincarnation of Ancient Rome, 
+with slightly different 
+ethno-demographics (if ethnicity
+is really that important) and 
+more advanced technology (due 
+to the advances made since the 
+last sacking of Rome by different
+peoples that are incorporated 
+into the nation's infrastructure), 
+is that promotions to leadership 
+positions strongly favor the 
+seniority of individuals' 
+family tree in this nation and 
+outside of it. I am not making 
+this up. Take a look at the 
+list of approximately 50 presidents
+that have served this nation. 
+Then take a look at the commercial 
+clans of this nation, based on 
+their specific industrial specialties. 
+
+I expected more from being a  
+citizen of this nation, truthfully.  
+I am not mincing words here. But  
+this sentiment has been replaced  
+by another, and with no hurt  
+feelings from my end. Sentiments  
+of entitlement, that is what  
+expecting more is, have been  
+replaced by a strong sense of  
+skepticism. I believe very little  
+outside of the basics. And what  
+exactly do I feel entitled to?  
+A job that pays over the minumum  
+necessary for me to persist, that  
+I enjoy doing because I have an  
+intellectual liking for it or at  
+least passionate about it. Housing  
+that is not complete SHITE. It is  
+not a coincidence that I still live  
+with my parents even when I am  
+rapidly approaching middle age.  
+I do not believe in coincidences  
+when it comes to the deliberate  
+actions taken by individuals that  
+form what is deemed group-based  
+actions. I view this condition of  
+my daily life as a big test of  
+caring less and less. 
+
+I plan to relocate to another  
+region of the United States and  
+take up work that better accomodates  
+my skills and pursuits by the end  
+of this year. Sorry, Florida, but  
+you do not represent the entire  
+United States. You might never will.  
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
