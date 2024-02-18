@@ -2298,7 +2298,7 @@ peoples that are incorporated
 into the nation's infrastructure),  
 is that promotions to leadership  
 positions strongly favor the  
-seniority of individuals' 
+seniority of individuals'  
 family tree in this nation and  
 outside of it. I am not making  
 this up. Take a look at the  
