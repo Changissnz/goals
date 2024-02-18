@@ -2397,6 +2397,15 @@ I thought of Count Dooku
 from Star Wars before  
 coming up with it.  
 
+When the pice for labor  
+is halved, then there  
+can be two workers.  
+Understand? Then "double  
+the fall" is when  
+those two workers are  
+stuck working those  
+jobs until they retire.
+
 --------------------------------------------------------------------------------------------------------------
 
 Copyright 2024 Richard Pham  
