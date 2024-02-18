@@ -2219,7 +2219,7 @@ anti-corrective purposes.
 
 --------------------------------------------------------------------------------------------------------------
 
-# The References 
+# The United States
 
 Ever since I was in elementary  
 school, I have always thought of  
@@ -2273,40 +2273,40 @@ against the Roman Empire, or at
 least the imperial leadership of  
 the Roman Empire.
 
-The United States, from my 
-perspective in this modern-day, 
-seems to have ideations of decline 
-on top of whatever problems it 
+The United States, from my  
+perspective in this modern-day,  
+seems to have ideations of decline  
+on top of whatever problems it  
 really has. These ideations of  
 decline are discussed daily on  
 the front page and by citizens  
 of all stripes and colors. And  
 this year, 2024 the election year,  
-has amplified this activity. 
+has amplified this activity.  
 
-Another big reason why I continue 
-to validate my views that the 
-United States is very much a 
-reincarnation of Ancient Rome, 
-with slightly different 
-ethno-demographics (if ethnicity
-is really that important) and 
-more advanced technology (due 
-to the advances made since the 
-last sacking of Rome by different
-peoples that are incorporated 
-into the nation's infrastructure), 
-is that promotions to leadership 
-positions strongly favor the 
+Another big reason why I continue  
+to validate my views that the  
+United States is very much a  
+reincarnation of Ancient Rome,  
+with slightly different  
+ethno-demographics (if ethnicity  
+is really that important) and  
+more advanced technology (due  
+to the advances made since the  
+last sacking of Rome by different  
+peoples that are incorporated  
+into the nation's infrastructure),  
+is that promotions to leadership  
+positions strongly favor the  
 seniority of individuals' 
-family tree in this nation and 
-outside of it. I am not making 
-this up. Take a look at the 
-list of approximately 50 presidents
-that have served this nation. 
-Then take a look at the commercial 
-clans of this nation, based on 
-their specific industrial specialties. 
+family tree in this nation and  
+outside of it. I am not making  
+this up. Take a look at the  
+list of approximately 50 presidents  
+that have served this nation.  
+Then take a look at the commercial  
+clans of this nation, based on  
+their specific industrial specialties.  
 
 I expected more from being a  
 citizen of this nation, truthfully.  
