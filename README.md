@@ -2371,6 +2371,20 @@ will.
 
 --------------------------------------------------------------------------------------------------------------
 
+# The United States Pt. 2
+
+I am really going to "run  
+away" from all of this. I  
+will move to Los Angeles,  
+become a screen writer AND  
+producer for the film industry.  
+Then I will experience the  
+greatest glamour in the  
+whole entire world. This is  
+what I want, right?  
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
