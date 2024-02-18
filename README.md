@@ -2319,7 +2319,7 @@ expecting more is, have been
 replaced by a strong sense of  
 skepticism. I believe very little  
 outside of the basics. And what  
-exactly do I feel entitled to?  
+exactly did I feel entitled to?  
 A job that pays over the minumum  
 necessary for me to persist, that  
 I enjoy doing because I have an  
@@ -2333,17 +2333,41 @@ I do not believe in coincidences
 when it comes to the deliberate  
 actions taken by individuals that  
 form what is deemed group-based  
-actions. I view this condition of  
+results. I view this condition of  
 my daily life as a big test of  
-caring less and less. 
+caring less and less. I care less  
+and less by not giving a rat's  
+ass about the many "success"  
+stories that I read about.  
+Typical "success" stories include  
+a person that has immigrated from  
+another country or their parents  
+immigrated from another country.  
+And somehow, the person becomes  
+really successful. And then  
+their story gets promoted by  
+some demographic groups as,  
+you know, The Example...  
 
-I plan to relocate to another  
-region of the United States and  
-take up work that better accomodates  
-my skills and pursuits by the end  
-of this year. Sorry, Florida, but  
-you do not represent the entire  
-United States. You might never will.  
+For me, at this point in my life  
+with the perspective I have  
+developed, I cannot really imagine  
+life outside of the United States,  
+although most of my years so far  
+have been spent in the hottest  
+and most tropical state in this  
+nation. So what if I have blood  
+relatives in the other hemisphere?  
+What have they really done for  
+me? I plan to relocate to  
+another region of the United  
+States and take up work that  
+better accomodates my skills  
+and pursuits by the end of this  
+year. Sorry, Florida, but you  
+do not represent the entire  
+United States. You might never  
+will.
 
 --------------------------------------------------------------------------------------------------------------
 
