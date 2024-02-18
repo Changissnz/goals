@@ -2397,7 +2397,7 @@ I thought of Count Dooku
 from Star Wars before  
 coming up with it.  
 
-When the pice for labor  
+When the price for labor  
 is halved, then there  
 can be two workers.  
 Understand? Then "double  
