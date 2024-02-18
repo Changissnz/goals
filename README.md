@@ -2385,6 +2385,20 @@ what I want, right?
 
 --------------------------------------------------------------------------------------------------------------
 
+# Half the Price, Twice the Labor, Double the Fall
+
+This title sums up any  
+"over-achiever" that does  
+not get their "fair share"  
+from achieving past the  
+threshold for passing.  
+
+I thought of Count Dooku  
+from Star Wars before  
+coming up with it.  
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
