@@ -2603,8 +2603,8 @@ information on the consumers than
 before.  
 
 Another notion of mine that I want  
-to put out is that digital technology  
-as an application of social media has  
+to put out is that social media  
+as an application of digital technology has  
 already reached the apex as a democratic  
 tool of expression. Before social media,  
 most of the popular media in the United  
@@ -2644,7 +2644,32 @@ greatest economic achievement of a developed
 economy. Media is merely one of the many  
 institutions in the tertiary economy.  
 Doctors and lawyers are also part of the  
-tertiary economy, for example.  
+tertiary economy, for example. Monetization  
+is quite difficult to achieve in the  
+high-tech industry. Capital funding,  
+in many cases, is exponentially easier  
+for a company than it is for the  
+company to be able to generate a  
+consistent and substantial revenue  
+based on the merit and adoption of  
+its products. One reason to believe  
+social media as a product may have  
+already reached its apex is measurements  
+of adult usage, and the record of  
+technological leaps made in the social  
+media industry. Those measurements,  
+which excludes artificial intelligence  
+developments that are not exclusively  
+pioneered by social media giants,  
+have stagnated, according to many  
+sources. Other portions of the media  
+industry that are not part of the  
+social media giants, such as the  
+news industry, also have significant  
+problems generating revenue. One  
+big cause that they attribute to  
+is that the social media giants  
+have bit hard into their revenue.  
 
 From the perspective of the commoner,  
 perhaps these feuds against social  
