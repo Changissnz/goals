@@ -2455,6 +2455,32 @@ or worse.
 
 --------------------------------------------------------------------------------------------------------------
 
+# Franchises I am Boycotting
+
+I am boycotting Dairy Queen  
+for a long while. That Oreo  
+Blizzard I was served yesterday  
+was political. It was completely  
+white on top, and the top  
+went up narrow like a pyramid.  
+
+About halfway through the  
+Blizzard was when the Oreos  
+started to appear, so that  
+the Blizzard could be white  
+and black.  
+
+And the blizzard sparked up  
+my allergies. I think that  
+is the big reason for my  
+boycott. The staff that  
+served me that? A mix of  
+Spaniard and Slavic types.  
+
+Strange mofos. 
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
