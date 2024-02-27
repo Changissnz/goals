@@ -2677,7 +2677,7 @@ businesses. So is it politics
 and social activism that made  
 its way into these social media  
 giants, or did these social  
-medial giants get into politics  
+media giants get into politics  
 and social activism? The answer  
 is subjective. 
 
