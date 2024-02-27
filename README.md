@@ -2625,7 +2625,7 @@ their rise to prominence. This democratization
 process is what I call "mobocratization".  
 "Mobocratization" is when an influencer  
 is able to build a following large enough  
-and willing to fork over enough money to  
+that is willing to fork over enough money to  
 them so that their works distributed over  
 social media platforms can net them enough  
 capital to do more than simply survive.  
