@@ -2657,8 +2657,8 @@ social media as a product may have
 already reached its apex is measurements  
 of adult usage, and the record of  
 technological leaps made in the social  
-media industry. Those measurements,  
-which excludes artificial intelligence  
+media industry. These measurements,  
+which exclude artificial intelligence  
 developments that are not exclusively  
 pioneered by social media giants,  
 have stagnated, according to many  
