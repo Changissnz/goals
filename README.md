@@ -2481,6 +2481,207 @@ Strange mofos.
 
 --------------------------------------------------------------------------------------------------------------
 
+# The New Denunciation Of Social Media
+
+National governments, alongside  
+journalists aligned with them,  
+have been continuing their assaults  
+against social media through  
+the levying of taxes on these  
+giants, regulations on the  
+algorithmic operations and  
+individualized content served,  
+and promoting mass outrage.  
+This trend has been going on  
+since about 2016, about the  
+same time the United States  
+welcomed its 45th president.  
+The year is now 2024, and  
+despite the ongoing legal feuds  
+with the New Media giants such  
+as Facebook, challengers to  
+these platforms outside of  
+the judicial system have not  
+been able to come up with  
+better alternatives. Quite  
+truly that this can so be  
+said, and one of the best  
+pieces of evidence is the  
+stock prices of these social  
+media giants in comparison  
+to their challenger companies.  
+These general figures are not  
+the most certain and absolute  
+metrics on the social media  
+giants, admittedly, because  
+they do not highlight the  
+downsides of using these  
+platforms and the shortcomings  
+of these platforms' underlying  
+infrastructure. How could they?  
+These deficits are part of  
+the giants' big stash of  
+trade secrets. Exposing sensitive  
+information, no matter from the  
+poorest beggar or the most powerful  
+social media giant, requires  
+a kind of clearance and authority,  
+in technical terms. In theoretical  
+terms, however, exposing sensitive  
+information on any person or  
+persons or organization constitutes  
+an assault on their capital. The  
+question of if the target that  
+was exposed truly deserved it,  
+by the vantage points of  
+righteousness and fair play  
+and justice and so on and so  
+forth, is so hefty a topic that  
+if I were to be in charge of  
+doing research on the topic, I  
+would rather hire a prestigious  
+lawyer to do it for me (if I  
+had the capital to afford the  
+service). 
+
+There is an interesting article  
+by a Paolo Confino on Fortune  
+that is titled "Americans are  
+getting fed up with social media  
+companies, they just don't want  
+the government to do anything  
+about it". I agree with the  
+title. I really do. The problem  
+is that it is easy to be a critic.  
+For example, I have been called  
+ugly and undesirable before.  
+"So vut, vanna fight about it?"  
+This has been the best description  
+of the chain reaction going on  
+in the various feuds against  
+social media. Performative  
+defenses and offenses, because  
+there has not been any better  
+solution that what the existing  
+social media giants have to offer.  
+Some typical anecdotes in the  
+fight against social media go as  
+such:  
+- a little girl saw sexual content  
+  on Facebook. Well... how did she  
+  get past the age requirement for  
+  an account in the first place?  
+- a little boy gets introduced to  
+  guns and drugs by watching videos  
+  on Facebook. Again... how did he  
+  get past the age requirement for  
+  an account in the first place?  
+I have a suggestion on how to deal  
+with cases such as these. The answer  
+is to implement firewalls that use  
+artificial intelligence. These firewalls  
+will collect relevant identifying  
+information, such as social security  
+number, photo and fingerprint identification,  
+amongst other details. But there is  
+a downside, as many have already  
+figured. The downside is that more  
+sensitive information will be collected  
+by these social media giants. There  
+will be less online anonymity when the  
+internet infrastructure, with its  
+already abundant suite of security  
+protocols, uses more sensitive  
+information in the quest for security  
+and accountability. And in the  
+advents that those social media  
+giants get "hacked", then the  
+attackers have the prospect of  
+gaining even more sensitive  
+information on the consumers than  
+before.  
+
+Another notion of mine that I want  
+to put out is that digital technology  
+as an application of social media has  
+already reached the apex as a democratic  
+tool of expression. Before social media,  
+most of the popular media in the United  
+States existed on Big Television channels.  
+The themes of narcissism, megalomania,  
+vanity, lust, heroism, and psychopathy so  
+frequently depicted remain virtually the  
+same back then as now. It is just that in  
+today's world, Big Television no longer  
+has a monopoly on what performers get  
+to shine in the spotlight and what themes  
+deserve the attention of the audience  
+for the day. Instead, social media giants  
+have ushered in a kind of democratization  
+process in the media industry that is  
+distinct from what existed before  
+their rise to prominence. This democratization  
+process is what I call "mobocratization".  
+"Mobocratization" is when an influencer  
+is able to build a following large enough  
+and willing to fork over enough money to  
+them so that their works distributed over  
+social media platforms can net them enough  
+capital to do more than simply survive.  
+The rigid structuring of Big Television  
+before social media giants allowed for  
+aristocratic principles to follow through  
+from start to finish more effectively.  
+
+The monetization process in the media  
+industry, and this includes social media  
+giants, is part of the tertiary sector of  
+the economy. The tertiary sector, in other  
+words, is the services industry and is,  
+from the perspective of hierarchy, the  
+greatest economic achievement of a developed  
+economy. Media is merely one of the many  
+institutions in the tertiary economy.  
+Doctors and lawyers are also part of the  
+tertiary economy, for example.  
+
+From the perspective of the commoner,  
+perhaps these feuds against social  
+media giants are merely feuds over  
+influence in the media industry. I  
+cannot imagine that media technologies  
+can possibly improve any further by  
+objective measures, separate from  
+cultural and political interpretations,  
+without mass upgrades in electronic  
+hardware and consumer knowledge in  
+the underlying technologies behind  
+what is consumed on the screen.  
+What I find much more fascinating  
+to read about are the advances in  
+emerging technologies such as  
+virtual reality, brain-computer  
+interfaces, and integration of  
+artificial intelligence technologies  
+into existing infrastructure. These  
+advances are pioneered by these  
+social media giants, in great  
+part because these organizations  
+were originally founded as  
+technology companies, companies  
+that produce technology primarily  
+in the form of platforms for  
+use by consumers and small  
+businesses. So is it politics  
+and social activism that made  
+its way into these social media  
+giants, or did these social  
+medial giants get into politics  
+and social activism? The answer  
+is subjective. 
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
