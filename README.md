@@ -2708,6 +2708,20 @@ is subjective.
 
 --------------------------------------------------------------------------------------------------------------
 
+# "Poison Politics"
+
+I recently read an article by a  
+U.S. newspaper agency that couples  
+the concept of "poison politics"  
+with "Putin's Russia". I find it  
+intriguing that Russia is explicitly  
+singled out by the newspaper as  
+engaging in poison politics.  
+
+No further comment. 
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
