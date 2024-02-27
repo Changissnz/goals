@@ -2427,6 +2427,10 @@ on terrorism.
 Those that social-engineer do not  
 have aspirations to produce any  
 material products or immaterial  
+knowledge. However, they can  
+still social-engineer others to  
+do the bidding of producing  
+material products or immaterial  
 knowledge. Social engineering  
 constitutes zero-gain (at best)  
 initiatives and do not guarantee  
