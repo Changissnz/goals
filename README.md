@@ -2575,7 +2575,8 @@ such:
   guns and drugs by watching videos  
   on Facebook. Again... how did he  
   get past the age requirement for  
-  an account in the first place?  
+  an account in the first place?
+  
 I have a suggestion on how to deal  
 with cases such as these. The answer  
 is to implement firewalls that use  
