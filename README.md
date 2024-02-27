@@ -2408,6 +2408,49 @@ jobs until they retire.
 
 --------------------------------------------------------------------------------------------------------------
 
+# The Lowest Form of Engineering
+
+Award goes to social engineering.  
+Social engineering requires, first  
+and foremost, the deliberation to  
+deceive someone or some group of  
+persons so that their actions  
+become geared for motives outside  
+of their realm of knowledge.  
+
+The aims of social engineering  
+are to control persons through  
+subversion, misrepresentation, and  
+fear that may or may not border  
+on terrorism.  
+
+Those that social-engineer do not  
+have aspirations to produce any  
+material products or immaterial  
+knowledge. Social engineering  
+constitutes zero-gain (at best)  
+initiatives and do not guarantee  
+reliable results due to its  
+reliance on the social factor.  
+
+Social engineering is best  
+considered a sub-branch of  
+political science and psychology  
+than an actual field of  
+engineering.
+
+The best social engineers do not  
+produce or construct anything.  
+They go on to become leaders,  
+primarily in media and politics,  
+right where they belong, although  
+they may not be the heads of the  
+show. This is because Aristotle  
+lives to this day, for better  
+or worse.
+
+--------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
