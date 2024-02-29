@@ -2850,7 +2850,7 @@ formulae even need mathematical
 reasoning on paper to be called  
 formulae, or can they simply come  
 from the hearts and minds of those  
-that are recognized as a participant  
+that are recognized as participants  
 in the decision process? And  
 lastly, there are two mentalities  
 to go about judging whether one  
@@ -2942,7 +2942,7 @@ then they could be considered,
 from an empirical standpoint,  
 non-political. But it is not always  
 politics because pain and suffering  
-is inevitable, the pure existentialist  
+are inevitable, the pure existentialist  
 says. And the pure emotionalist with  
 an aching soul would say that they  
 just want to be happy. They do not  
