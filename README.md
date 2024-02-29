@@ -2604,107 +2604,127 @@ before.
 
 Another notion of mine that I want  
 to put out is that social media  
-as an application of digital technology has  
-already reached the apex as a democratic  
-tool of expression. Before social media,  
-most of the popular media in the United  
-States existed on Big Television channels.  
-The themes of narcissism, megalomania,  
-vanity, lust, heroism, and psychopathy so  
-frequently depicted remain virtually the  
-same back then as now. It is just that in  
-today's world, Big Television no longer  
-has a monopoly on what performers get  
-to shine in the spotlight and what themes  
-deserve the attention of the audience  
-for the day. Instead, social media giants  
-have ushered in a kind of democratization  
-process in the media industry that is  
-distinct from what existed before  
-their rise to prominence. This democratization  
-process is what I call "mobocratization".  
-"Mobocratization" is when an influencer  
-is able to build a following large enough  
-that is willing to fork over enough money to  
-them so that their works distributed over  
-social media platforms can net them enough  
-capital to do more than simply survive.  
-The rigid structuring of Big Television  
-before social media giants allowed for  
-aristocratic principles to follow through  
-from start to finish more effectively.  
+as an application of digital  
+technology has already reached the  
+apex as a democratic tool of  
+expression. Before social media,  
+most of the popular media in the  
+United States existed on Big  
+Television channels. The themes  
+of narcissism, megalomania,vanity,  
+lust, heroism, and psychopathy so  
+frequently depicted remain virtually  
+the same back then as now. It is  
+just that in today's world, Big  
+Television no longer has a monopoly  
+on what performers get to shine in  
+the spotlight and what themes  
+deserve the attention of the  
+audience for the day. Instead,  
+social media giants have ushered  
+in a kind of democratization  
+process in the media industry that  
+is distinct from what existed  
+before their rise to prominence.  
+This democratization process is  
+what I call "mobocratization".  
+"Mobocratization" is when an  
+influencer is able to build a  
+following large enough that is  
+willing to fork over enough money  
+to them so that their works  
+distributed over social media  
+platforms can net them enough  
+capital to do more than simply  
+survive. The rigid structuring  
+of Big Television before social  
+media giants allowed for  
+aristocratic principles to follow  
+through from start to finish more  
+effectively.  
 
-The monetization process in the media  
-industry, and this includes social media  
-giants, is part of the tertiary sector of  
-the economy. The tertiary sector, in other  
-words, is the services industry and is,  
-from the perspective of hierarchy, the  
-greatest economic achievement of a developed  
-economy. Media is merely one of the many  
-institutions in the tertiary economy.  
-Doctors and lawyers are also part of the  
-tertiary economy, for example. Monetization  
-is quite difficult to achieve in the  
-high-tech industry. Capital funding,  
-in many cases, is exponentially easier  
-for a company than it is for the  
-company to be able to generate a  
-consistent and substantial revenue  
-based on the merit and adoption of  
-its products. One reason to believe  
-social media as a product may have  
-already reached its apex is measurements  
-of adult usage, and the record of  
-technological leaps made in the social  
-media industry. These measurements,  
-which exclude artificial intelligence  
-developments that are not exclusively  
-pioneered by social media giants,  
-have stagnated, according to many  
-sources. Other portions of the media  
-industry that are not part of the  
-social media giants, such as the  
-news industry, also have significant  
+The monetization process in the  
+media industry, and this includes  
+social media giants, is part of  
+the tertiary sector of the economy.  
+The tertiary sector, in other  
+words, is the services industry  
+and is, from the perspective of  
+hierarchy, the greatest economic  
+achievement of a developed  
+economy. Media is merely one of  
+the many institutions in the  
+tertiary economy. Doctors and  
+lawyers are also part of the  
+tertiary economy, for example. 
+Monetization is quite difficult  
+to achieve in the high-tech  
+industry. Capital funding, in  
+many cases, is exponentially  
+easier for a company than it  
+is for the company to be able  
+to generate a consistent and  
+substantial revenue based on  
+the merit and adoption of its  
+products. One reason to believe  
+social media as a product may  
+have already reached its apex  
+is measurements of adult usage,  
+and the record of technological  
+leaps made in the social media  
+industry. These measurements,  
+which exclude artificial  
+intelligence developments that  
+are not exclusively pioneered  
+by social media giants, have  
+stagnated, according to many  
+sources. Other portions of the  
+media industry that are not  
+part of the social media  
+giants, such as the news  
+industry, also have significant  
 problems generating revenue. One  
 big cause that they attribute to  
 is that the social media giants  
 have bit hard into their revenue.  
 
-From the perspective of the commoner,  
-perhaps these feuds against social  
-media giants are merely feuds over  
-influence in the media industry. I  
-cannot imagine that media technologies  
-can possibly improve any further by  
-objective measures, separate from  
-cultural and political interpretations,  
-without mass upgrades in electronic  
-hardware and consumer knowledge in  
-the underlying technologies behind  
+From the perspective of the  
+commoner, perhaps these feuds  
+against social media giants are  
+merely feuds over influence in  
+the media industry. I cannot  
+imagine that media technologies  
+can possibly improve any further  
+by objective measures, separate  
+from cultural and political  
+interpretations, without mass  
+upgrades in electronic hardware  
+and consumer knowledge in the  
+underlying technologies behind  
 what is consumed on the screen.  
 What I find much more fascinating  
 to read about are the advances in  
 emerging technologies such as  
 virtual reality, brain-computer  
 interfaces, and integration of  
-artificial intelligence technologies  
-into existing infrastructure. These  
-advances are pioneered by these  
-social media giants, in great  
-part because these organizations  
-were originally founded as  
-technology companies, companies  
-that produce technology primarily  
-in the form of platforms for  
-use by consumers and small  
-businesses. So is it politics  
-and social activism that made  
-its way into these social media  
-giants, or did these social  
-media giants get into politics  
-and social activism? The answer  
-is subjective. 
+artificial intelligence  
+technologies into existing  
+infrastructure. These advances  
+are pioneered by these social  
+media giants, in great part  
+because these organizations were  
+originally founded as technology  
+companies, companies that produce  
+technology primarily in the form  
+of platforms for use by  
+consumers and small businesses.  
+So is it politics and social  
+activism that made its way  
+into these social media giants,  
+or did these social media  
+giants get into politics and  
+social activism? The answer  
+is subjective.  
 
 --------------------------------------------------------------------------------------------------------------
 
