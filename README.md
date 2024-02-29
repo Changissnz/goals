@@ -2746,7 +2746,7 @@ No further comment.
 
 Out of the various lessons that  
 can be taken out of Greek philosophy,  
-perhaps the most important one, goes  
+perhaps the most important one goes  
 something as such: "man is a political  
 animal". What exactly does this statement  
 mean? Most human beings on this planet  
