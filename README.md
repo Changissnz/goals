@@ -2926,7 +2926,7 @@ competition can be done through
 increasing the threshold for  
 success/recognition or placing  
 restrictions on the practices and  
-strengths on certain contenders  
+strengths of certain contenders  
 in politics. Typical idioms such  
 as "dog eat dog world" support  
 this approach to thinking about  
