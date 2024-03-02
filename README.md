@@ -2656,7 +2656,7 @@ economy. Media is merely one of
 the many institutions in the  
 tertiary economy. Doctors and  
 lawyers are also part of the  
-tertiary economy, for example. 
+tertiary economy, for example.  
 Monetization is quite difficult  
 to achieve in the high-tech  
 industry. Capital funding, in  
