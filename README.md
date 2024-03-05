@@ -2951,6 +2951,296 @@ real enough to make them feel emotions.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# The Human Element Against A.I.
+
+The effects of ongoing developments  
+in artificial intelligence are hard  
+for deep discussion. I assume this  
+to be true for the typical person  
+that has at most a high-school level  
+understanding of mathematics, not  
+that mathematics is the only credible  
+field for understanding the effects  
+of artificial intelligence. Alas,  
+youth is seldom left to its own way  
+to develop according to the dictates  
+of passion. Some might disagree with  
+this statement and say that it is  
+the mentality of disciplinarians  
+and hierarchs. But look patiently  
+and closely at the drivers of human  
+motivation in any occupation, whether  
+it be the sternness of military  
+occupations or the whimsical  
+activity of the artisan, and one  
+can be sure to learn that not all  
+of those drivers exist in and of  
+the individual persons.  
+
+Refocusing back on the developments  
+of artificial intelligence, there  
+seems to be a wide spectrum of  
+notions on it as a good. There are  
+some that are very enthusiastic  
+about it, believing that the  
+delegation of thought and skill to  
+machines trained over recordings  
+and representations of those  
+thoughts and skills will be able  
+to perform at least as well as  
+human laborers. And what's more?  
+Since those machines are equipped  
+with algorithms that can process  
+big data multitudes of times faster  
+than human beings and can then  
+turn into tools more valuable  
+than even their makers according  
+to the value of productivity and  
+capability, then the rapid  
+developments in artificial  
+intelligence will, sooner rather  
+than later, culminate into a  
+fantastic and virtually impeccable  
+product in terms of performance  
+over human beings. Then there are  
+those, both the educated gentry  
+and pseudo-educated mass populace,  
+that are skeptical of artificial  
+intelligence. I suppose the field  
+of economics, with its old-fashioned  
+Keynesian economics, is not  
+particularly fond of artificial  
+intelligence as a good but perhaps  
+still believe in the power that  
+artificial intelligence can grant  
+(in some situations). And that  
+power is to be contained, so  
+goes the thinking of many. The  
+stock market's tendency to behave  
+towards volatility gives credence to  
+these skeptics on the idea that  
+artificial intelligence is an  
+over-valued product based on cryptic  
+(proprietary) design and that those  
+that promote artificial intelligence  
+may be really good at pitching ideas  
+to potential buyers and with science,  
+but ultimately barely have any real  
+clues on the fundamental needs of  
+human beings based on their cultural  
+and geographic needs. And there are  
+some that express notions of fear  
+against artificial intelligence.  
+The reasoning is that if real  
+change will occur because of  
+labor demands due to artificial  
+intelligence and artificial  
+intelligence is assigned  
+responsibilities that may jeopardize  
+the welfare of human beings,  
+then artificial intelligence is  
+at least as much of a threat as  
+an asset, a two-sided sword per  
+se. 
+
+The rationales and spirits for  
+and against any of the above  
+three views are essentially  
+based on the interests of  
+individuals, if one can really  
+call a person an individual  
+if they are beholden to  
+interests comprised of many  
+persons and that may also  
+include non-human elements.  
+What exactly are the institutions  
+that are making these  
+developments in artificial  
+intelligence? A basic  
+categorization would be  
+military, corporate, and  
+university interests, although  
+there is much overlap between  
+these three groups. According  
+to media sources, there is a  
+race going on in artificial  
+intelligence. It is fair to  
+say that any nation that has  
+moved past being a nation that  
+is predominantly agricultural  
+has vested interests in  
+artificial intelligence. These  
+"races", for lack of better  
+terms, are a part of the  
+human element against artificial  
+intelligence. Ironically, when  
+one competes against another to  
+develop and possess the same  
+goals, the winner may take  
+all and give back less.  
+
+It is my perspective that  
+artificial intelligence, despite  
+the great calls from many that  
+artificial intelligence should  
+be developed for the "global  
+good", is an elitist product  
+based on the business and  
+political dealings that have  
+taken place and will continue  
+to take place. To elaborate,  
+artificial intelligence may  
+be able to accomodate the  
+needs of many from many  
+backgrounds, but the fruition  
+of the ideas that greatly aid  
+in building the backbones of  
+artificial intelligence are  
+from the minds of some of the  
+greatest thinkers, not your  
+typical layman. And the owners  
+of the commercial varieties of  
+these artificial intelligence  
+systems predominantly come from  
+well-to-do families with historical  
+connections to commerce. The task  
+of understanding artificial  
+intelligence takes a backseat  
+for the consumer who would much  
+rather put their time to using  
+the automation capabilities to  
+boost their own productivity, 
+what they judge to be for  
+better use than sitting down  
+and pondering about ideas in  
+computation, then having to take  
+the additional step of validating  
+their understanding of artificial  
+intelligence by looking at the  
+mountains of computer code that  
+do not seem to make much sense  
+since the code was probably  
+written by software engineering  
+teams that had to split up the  
+thought and labor into producing  
+the artificial intelligence  
+product. 
+
+The systemic nature involved in  
+mass-marketing products that  
+have a great potential for  
+disruptive change, such as the  
+steam engine and the automobile,  
+speaks poorly for the possibility  
+of artificial intelligence to  
+seamlessly and silently inject  
+itself into the lives of typical  
+human beings so that happiness  
+and prosperity is guaranteed to  
+be preserved. Activities of  
+"hacking the system" will not  
+decline from the adoption of  
+artificial intelligence. And  
+these activities of "hacking"  
+systems are better classified  
+as human rather than mechanical,  
+unless the system was designed  
+so poorly that it is bound to  
+"hack" itself.  
+
+One can already witness the  
+great human element in the  
+form of labor strikes and  
+college protests in the  
+U.S.A., and one would have  
+probably thought that this  
+nation's claim to being a  
+top hub for artificial  
+intelligence would entail  
+the benefits of social  
+and labor adjustments to  
+allow for less  
+dissatisfaction from various  
+groups. The simple explanation  
+is that dissatisfaction even  
+in the developed world is not  
+due only to the developments  
+in artificial intelligence;  
+there are other factors involved  
+as well.  
+
+The issue with the human  
+element in the context of  
+technological change is that  
+human beings tend to lust for  
+power and control rather than  
+understanding, especially if  
+they feel as though their  
+welfare will be threatened  
+beyond their reasonable  
+range of control. The  
+"survivalist mentality" craves  
+for stability and reliability  
+at costs that may involve  
+other human beings. 
+
+Some proposals and enactments  
+are already present at this  
+time. Ideas such as universal  
+basic income, championed by  
+progressives, and government  
+regulations have reached the  
+front-page of the news industry.  
+Corporations also play a role  
+in labor demands, alongside  
+the financiers from banking.  
+
+It is fair to mention one  
+other aspect of the human  
+element against artificial  
+intelligence. This one is  
+quite important to understanding  
+the ramifications of artificial  
+intelligence as a mass-marketed  
+product, and it is called  
+conservatism. Fiscal conservatism  
+takes the form of devaluation  
+against marketing that tends  
+towards inflationary practices  
+and labor instability. Social  
+conservatism varies according  
+to different regions of the  
+world. For example, India  
+historically had the caste  
+system. In the context of  
+artificial intelligence  
+invoking change, social  
+conservatism undoubtedly plays  
+a great role in maintaining  
+the "order" and the "rankings"  
+of specific persons and specific  
+groups based on, for lack of  
+an accurate phrase, a plethora  
+of factors.  
+
+After reviewing these topics,  
+one can reasonably come to  
+believe that not much can  
+possibly change without greater  
+changes outside of the realm  
+of relative control. There  
+is still the social construct  
+and social contracts. There  
+are still supply-and-demand  
+dynamics that need to be met  
+in the primary and secondary  
+sectors of the economy before  
+advancing the tertiary sector  
+that may or may not include  
+artificial intelligence.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
