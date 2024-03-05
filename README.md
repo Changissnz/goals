@@ -3143,7 +3143,7 @@ decline from the adoption of
 artificial intelligence. And  
 these activities of "hacking"  
 systems are better classified  
-as human rather than mechanical,  
+as human rather than machine,  
 unless the system was designed  
 so poorly that it is bound to  
 "hack" itself.  
