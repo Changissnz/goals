@@ -3028,14 +3028,14 @@ to potential buyers and with science,
 but ultimately barely have any real  
 clues on the fundamental needs of  
 human beings based on their cultural  
-and geographic needs. And there are  
-some that express notions of fear  
-against artificial intelligence.  
-The reasoning is that if real  
-change will occur because of  
-labor demands due to artificial  
-intelligence and artificial  
-intelligence is assigned  
+and geographic circumstances. And  
+there are some that express notions  
+of fear against artificial  
+intelligence. The reasoning is  
+that if real change will occur  
+because of labor demands due to  
+artificial intelligence and  
+artificial intelligence is assigned  
 responsibilities that may jeopardize  
 the welfare of human beings,  
 then artificial intelligence is  
