@@ -3008,7 +3008,7 @@ and pseudo-educated mass populace,
 that are skeptical of artificial  
 intelligence. I suppose the field  
 of economics, with its old-fashioned  
-Keynesian economics, is not  
+Keynesian thought, is not  
 particularly fond of artificial  
 intelligence as a good but perhaps  
 still believe in the power that  
