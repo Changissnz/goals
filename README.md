@@ -3151,8 +3151,8 @@ so poorly that it is bound to
 One can already witness the  
 great human element in the  
 form of labor strikes and  
-college protests in the  
-U.S.A., and one would have  
+protests in the U.S.A.,  
+and one would have  
 probably thought that this  
 nation's claim to being a  
 top hub for artificial  
