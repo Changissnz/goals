@@ -3109,7 +3109,7 @@ intelligence takes a backseat
 for the consumer who would much  
 rather put their time to using  
 the automation capabilities to  
-boost their own productivity, 
+boost their own productivity,  
 what they judge to be for  
 better use than sitting down  
 and pondering about ideas in  
