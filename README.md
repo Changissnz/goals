@@ -3241,6 +3241,52 @@ artificial intelligence.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# The United States Pt. III
+
+There is more to the United  
+States than what I discussed  
+in Pt. I. In my hasty attempt  
+to draw a parallel between the  
+United States and Ancient Rome  
+through the two major points,  
+that the United States is  
+propagandistic to a similar  
+magnitude of influence to  
+Ancient Rome and its leadership  
+is structured according to  
+strong geopolitical if not  
+directly familial connections,  
+are not unique to the United  
+States. I can name many  
+nations that practice these  
+two points of the top of  
+my head. 
+
+I suppose that the scale  
+comprised of the breadth and  
+depth of these two attributes  
+enable the United States to  
+stand out among others.  
+Writing about the United  
+States as a reincarnation  
+of Ancient Rome requires  
+a kind of retrospective  
+imagination on top of  
+perspective on the  
+representation of Ancient  
+Rome through media sources.  
+
+What I wrote in "The United  
+States Pt. I" is an  
+incomplete analogy. This  
+is what happens when  
+big topics are discussed  
+in the style of musings  
+instead of empirical  
+research.  
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
