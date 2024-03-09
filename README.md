@@ -3263,18 +3263,19 @@ two points off the top of
 my head. 
 
 I suppose that the scale  
-comprised of the breadth and  
-depth of these two attributes  
-enable the United States to  
-stand out among others.  
-Writing about the United  
-States as a reincarnation  
-of Ancient Rome requires  
-a kind of retrospective  
-imagination on top of  
-perspective on the  
-representation of Ancient  
-Rome through media sources.  
+comprised of these two  
+attributes' breadth and  
+depth enable the United  
+States to stand out among  
+others. Writing about the  
+United States as a  
+reincarnation of Ancient  
+Rome requires a kind of  
+retrospective imagination  
+on top of perspective on  
+the representation of  
+Ancient Rome through media  
+sources.  
 
 What I wrote in "The United  
 States Pt. I" is an  
