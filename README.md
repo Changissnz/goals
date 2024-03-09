@@ -3288,6 +3288,203 @@ research.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Saturation of Higher Education 
+
+Anyone that has kept up with the  
+times in the developed world  
+has probably already read and/or  
+seen depictions of the office  
+job as the job. Score! Right?!  
+Young Miss,Mister,Mistre just  
+graduated from college, and  
+then they just hop right on  
+out to the next stage in life,  
+another rite of passage, to  
+fetch that office job. And  
+with all of those connections  
+from college combined with  
+those connections at their  
+new office workplace, each  
+and every one is fit to  
+fulfill their duties and soar  
+on to meet their potentials.  
+And everyone is so happy,  
+throwing parties every  
+Friday to celebrate all the  
+hard office work they did  
+on the previous four days,  
+sharing with each other  
+their dreams of running for  
+political office since they  
+are so well-positioned to  
+do just that after they  
+save up enough money to  
+pay off their beautiful  
+houses in the suburbs by  
+the prairie and direct the  
+building and maintenance of  
+empire. This is empire, right?  
+Fair is fair.  
+
+These depictions are a great  
+disservice in many ways, but  
+especially because they are  
+dishonest through statistical  
+rarity. The statistical chances  
+that these "slow ride, smooth  
+ride" life events occur make  
+their mass promotion unfair, in  
+one word. Changes occurring in  
+both global and national  
+economies continue to disappoint  
+many that stayed up late to  
+study for standardized tests  
+and continued to persevere  
+through the college path so  
+that they can graduate and  
+work occupations that do not  
+require any of that knowledge,  
+only the drive of brutality  
+and the pettiness to watch  
+over people's shoulders for  
+any of their mistakes that  
+can then be used against  
+their benefit. Suppose one  
+can chuckle at this prospect  
+on the lack of guarantee from  
+credentialism. Credentialism...  
+first there is grade school,  
+then undergraduate, then  
+graduate, then post-graduate,  
+then master of thy field of  
+knowledge, one of the masters  
+of the world. This reads like  
+a very straight path, no doubt  
+with some hardships here and  
+there but at least it is  
+manageable. And it is entirely  
+fair to those capable, without  
+question, because it is  
+meritocratic. Be sure not to  
+skip that class on Wednesday.  
+On that day, secret knowledge  
+will be distributed to the  
+students, knowledge that  
+determines how well they can  
+do on that final exam. Failure  
+of that final exam will seal  
+their fate as a loser instead  
+of a winner. The winner moves  
+on to the next stage and might  
+obtain that high-paying research  
+position, perhaps move on to  
+teaching others down the path  
+that made them great. 
+
+There is a limit to how many  
+people the tertiary sector can  
+employ. For a typical person  
+with scant socio-economic  
+protections in a region that  
+is experiencing an economic  
+downturn, forget about that  
+person's talents and their  
+looks and charms. They probably  
+will not be in good financial  
+standing by aiming for a  
+tertiary sector job that  
+pays above the median  
+because they will miss and  
+eventually fall flat on their  
+face with only a coin to spare  
+for a bandage on their face,  
+metaphorically speaking. The  
+expectations before and after  
+making such a big decision such  
+as attending higher education  
+or relocating to another  
+region for better work do  
+not have to be compatible  
+with each other; this is one  
+of the great benefits of a  
+free market, the absolving  
+of feelings and responsibilities  
+due to hardships or inadequancies  
+that impede upon the fulfillment  
+of so-declared goals. 
+
+Higher education in economic  
+downturns proves to be less  
+of a financial success story  
+than another rite of passage.  
+The jobs are not all there for  
+the biologists that are not  
+medical doctors, scientists  
+without doctorates, and  
+engineers that did not attend  
+military engineering school.  
+Want to go work for a  
+technology corporation? Get  
+rich just like that, ehh?  
+Do you see Miss Serena Chen  
+that had to work and cry  
+so hard to be a medical  
+doctor only to be drowning  
+in debt now with only old  
+men lusting after her? Think  
+about Billy Robinson, right?  
+The star baseball player that  
+celebrates his victories by  
+having fantastic parties with  
+all kinds of activity. He  
+never went to college. And now  
+he is a supervisor for a  
+construction corporation that  
+makes billions per year,  
+billions, happily married  
+and making $100K+ per year.  
+How exactly do stories such  
+as these promote more students  
+to higher education? And what  
+facts can be said about this  
+great increase in students  
+besides from there being more  
+people informed and versed  
+through instruction and  
+material that was distributed  
+en masse to them according  
+to planned curriculums. Will  
+the planned economy do any  
+better?
+
+Why people cannot have nice  
+things? Must intellect that  
+is underutilized in the labor  
+market (not talking about  
+off-time) put itself towards  
+devising schemes for self-gain  
+and insulting other peoples'  
+intelligence? Is there no  
+other noble path besides  
+from running off into the  
+wilderness to become a  
+hermit? Is the mismatch  
+between education and career  
+really about the money and  
+status or is it due to the  
+transition bridge from education  
+to career that has no guide or  
+builder but the individual  
+themself to decide and work  
+on? Then why are there  
+roadblocks? Why is there  
+pestilence far away and at  
+home? Can some people really  
+be let go to live their own  
+life?  
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
