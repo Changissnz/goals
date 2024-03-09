@@ -3259,7 +3259,7 @@ directly familial connections,
 are not unique to the United  
 States. I can name many  
 nations that practice these  
-two points of the top of  
+two points off the top of  
 my head. 
 
 I suppose that the scale  
