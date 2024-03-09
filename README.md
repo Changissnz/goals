@@ -3251,7 +3251,7 @@ United States and Ancient Rome
 through the two major points,  
 that the United States is  
 propagandistic to a similar  
-magnitude of influence to  
+magnitude of influence as  
 Ancient Rome and its leadership  
 is structured according to  
 strong geopolitical if not  
