@@ -3536,7 +3536,7 @@ points that belong to the
 possessor, those variables'  
 possible range of values, and  
 reactive sets of variables that  
-"complements" these vulnerability  
+"complement" these vulnerability  
 points. There is a kind of logic  
 that goes into the design of  
 the attack surface belonging to  
