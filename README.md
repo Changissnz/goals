@@ -3600,7 +3600,7 @@ prospect, and in ways that
 do not kick back at the  
 attacker when the attacker  
 is finitely resourced. This  
-subset of possible values are  
+subset of possible values is  
 the complements for the  
 vulnerability point, and there  
 is a likelihood that the  
