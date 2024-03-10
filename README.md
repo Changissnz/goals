@@ -3485,6 +3485,154 @@ life?
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# To Love the Attack Surface
+
+People are attracted to many  
+things, generally speaking.  
+Objects. Concepts. Attributes.  
+Objects that embody certain  
+concepts or carry specific  
+attributes. The attacker is  
+attracted to one thing in  
+their prospective prey. It  
+is the attack surface that  
+the prospect possesses.  
+Weakness is not a desired  
+trait to merge with strength  
+to become a different kind  
+of one and whole, since it  
+is obvious reasoning that  
+weakness when combined with  
+strength dulls the strength,  
+enmeshes it into webs of  
+inefficiency and nondeliberate  
+mistakes. The resultant is  
+something that could have  
+remained great if the  
+unnecessary incorporation of  
+the weak was not made. But  
+when the attacker does not  
+care for the prospect in ways  
+that negatively affect their  
+independent status, then the  
+attacker develops an attraction  
+for the prospect that excludes  
+the prospect's well-being.  
+Instances of this attraction  
+occurring are intriguing to  
+observe, although no specific  
+examples are provided in this  
+writing. 
+
+The attraction for the prospect  
+is coupled with a keen  
+fascination for the attack  
+surface the prospect possesses.  
+The attack surface embodies  
+the structure of variables  
+(independent,dependent, or  
+codependent) termed vulnerability  
+points that belong to the  
+possessor, those variables'  
+possible range of values, and  
+reactive sets of variables that  
+"complements" these vulnerability  
+points. There is a kind of logic  
+that goes into the design of  
+the attack surface belonging to  
+the prospect, and this design  
+in some contexts is not so  
+readily modifiable by the  
+prospect but inherent. But  
+generally speaking, if the  
+vulnerability points of the  
+surface have been accurately  
+recognized by the attacker,  
+then the attacker's offenses  
+onto any of the points is,  
+metaphorically speaking, an  
+injection that could take  
+many forms (concentrated,  
+diluted, explosive,gradual,  
+reactive, covert, etc.) with  
+the aims of adversely affecting  
+the formation (items, attributes,  
+etc.) that the point, exploited  
+through its vulnerability, is  
+connected to. And this formation  
+is connected in some meaningful  
+way to the possessor that is  
+the prospect of the attack/s.  
+To have knowledge of the  
+existence of a vulnerability  
+point is not enough for the  
+attacker in complex designs. The  
+vulnerability point may be coupled  
+with another vulnerability point  
+by defensive and coordinated  
+mechanisms. Also, the  
+vulnerability of the point can  
+only be accessed by passing values  
+that fit the vulnerability's range  
+of possible values, where "possible"  
+values are allowed entry into  
+the point through its  
+vulnerability. But "entry" does  
+not always equal to gains by  
+the attacker in ways that  
+enhance their probabilities  
+of success against the prospect  
+via the targeting of their  
+attack surface. The design of  
+the attack surface allows there  
+to be offensive-defensive measures  
+past the entry. For the injection  
+by the attacker through one or  
+more vulnerability points to  
+be categorized a success, the  
+attacker must first resort  
+to a premeditation that is at  
+least pseudo-precise (fuzzy)  
+in determining the subset of  
+possible values that would  
+most adversely affect the  
+prospect, and in ways that  
+do not kick back at the  
+attacker when the attacker  
+is finitely resourced. This  
+subset of possible values are  
+the complements for the  
+vulnerability point, and there  
+is a likelihood that the  
+complements are specific to  
+the attacker based on their  
+resources and capabilities.  
+
+The complexity of the offensive  
+and defensive mechanisms  
+connected to the attack surface  
+does not directly correlate to  
+the difficulty of an attacker's  
+success against the possessor.  
+Rather, the specific complexity  
+corresponds to specific complements  
+(if any complement exists for the  
+attacker) from the attacker  
+against the prospect through  
+their attack surface. For  
+instance, the attacker may have  
+to vary the magnitude of each  
+injection, chain together many  
+injections in temporal  
+patterns undefensible by the  
+attack surface's mechanisms,  
+and modify appearances and  
+executions of injections in  
+ways undetectable by the  
+prospect. 
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
