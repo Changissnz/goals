@@ -3549,7 +3549,7 @@ vulnerability points of the
 surface have been accurately  
 recognized by the attacker,  
 then the attacker's offenses  
-onto any of the points is,  
+onto any of the points are,  
 metaphorically speaking, an  
 injection that could take  
 many forms (concentrated,  
