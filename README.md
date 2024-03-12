@@ -3633,6 +3633,99 @@ prospect.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Doppelganger Operation
+
+Life is short. Remember those  
+friends you had back in grade  
+school? They don't exist anymore.  
+They never really existed. Now,  
+when you see people that look  
+just like them, those people  
+have different names. Those  
+people came from somewhere  
+else. You try to say hi to  
+them, but they look at you  
+as if you were a damaged  
+animal beneath them. Same  
+with the teachers. They guided  
+you towards endpoints that  
+suited the statistics demanded  
+of them from the Board of  
+Education. But your successes  
+under them were insured to  
+not amount to anything. Now,  
+when others ask them how  
+you were as a student, they  
+say that you were terribly  
+flawed. Brilliant and with  
+potential, but definitely  
+flawed. And then as proof for  
+their claims, they point out  
+your lowly socio-economic status.  
+Your significant others betrayed  
+you while you were with them.  
+Behind your back, your significant  
+others took other lovers,  
+received money in return, and  
+sold your name out to your  
+enemies.  
+
+Every person you know now  
+is a doppelganger of someone  
+you knew in the past. You  
+have to admit, you never really  
+knew anybody. You never will.  
+You just know that the  
+duplicity of things and the  
+impermanence of connection  
+means that you have to  
+remain true to yourself.  
+Through these experiences,  
+you become more drawn to  
+the "lone wolf" initiative.  
+You "want something done  
+right, do it yourself".  
+You might have been  
+depressed before, but  
+now long down this  
+road of being a "lone  
+wolf", there is a strong  
+chance you really might  
+go mad. Communication  
+becomes so hard for you  
+to do, because it is  
+unnecessary from your  
+mind. You see a pretty  
+woman. That is not a  
+woman, that is a whore.  
+You see a man that has  
+been given the Medal of  
+Honor. That is not a  
+strong man, but a  
+coward and a deserter.  
+You see a bureaucrat  
+in the news. That is  
+not a person that went  
+through the system  
+and got to where they  
+are fair and square.  
+That is a cheat, a  
+liar and sycophant  
+that got rich through  
+striking dirty deals  
+with foreigners. Whereas  
+a nihilist has little faith,  
+you are something less than  
+that. You are a cynic that  
+has to do things for yourself  
+only. You got marooned, and  
+there is no way you will  
+go back to get played  
+for the feeling of twice  
+the pain. 
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
