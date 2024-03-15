@@ -3931,17 +3931,18 @@ into it, I don't think my
 chances raising a family  
 here would work out. The  
 Greco/Italian/Hispanic/  
-Biker/Juggalo/Post-Rock/  
+Biker/Juggalo/Post-Rock  
 subcultures in this state  
-alongside my poor chances  
-of landing a job that pays  
-more than $60K make me want  
-to flee not out of cowardice  
-but disdain. The social  
-isolation I have experienced  
-for a predominant number of  
-years here adds more to my  
-decision to want out of  
+(subcultures contribute to  
+lost industrial productivity)  
+alongside my poor chances of  
+landing a job that pays more  
+than $60K make me want to flee  
+not out of cowardice but disdain.  
+The social isolation I have  
+experienced for a predominant  
+number of years here adds more  
+to my decision to want out of  
 Florida. Having experienced  
 attitudes from strangers and  
 disgruntled mannerisms at my  
