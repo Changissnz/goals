@@ -3976,11 +3976,11 @@ Everyone is switching bandwagons
 or hopping on. The internet is  
 great, isn't it?  
 
-Approx. 2012: Read a quote by  
-the 44th U.S.A. president,  
-Barack Obama, that goes something  
-like "don't just use technology,  
-program it".  
+Approx. 2012: 
+Read a quote by the 44th  
+U.S.A. president, Barack Obama,  
+that goes something like "don't  
+just use technology, program it".  
 
 *translation*  
 Silicon Valley makes inroads  
@@ -3988,8 +3988,9 @@ with D.C. at that point in
 time, to fortify commercial  
 ties.  
 
-Approx. 2014: Machine learning  
-becomes front page news.  
+Approx. 2014:  
+Machine learning becomes front  
+page news.  
 
 *elaboration*  
 Machines can learn now! Check  
@@ -4007,17 +4008,18 @@ the Russians are better at math!
 This is serious, people! The  
 Russians! The Russians!  
 
-Approx. 2016: Internet trolls!  
-4Chan! People sharing their  
-views in inflammatory ways!  
+Approx. 2016: 
+Internet trolls! 4Chan!  
+People sharing their views  
+in inflammatory ways!  
 Let's make some of them stars  
 by publishing Wikipedia articles  
 on them!  
 
-Approx. 2018: GDPR legislation  
-by the European Union to regulate  
-Big Tech data collection and  
-sharing.  
+Approx. 2018:  
+GDPR legislation by the European  
+Union to regulate Big Tech  
+data collection and sharing.  
 
 The Russians! The Russians  
 are hacking Americans to  
@@ -4043,15 +4045,17 @@ so information can freely flow!
 Trust me, I'm a reporter for  
 the news!"  
 
-Approx. 2020: All these companies  
+Approx. 2020:  
+All these companies  
 got hacked! This is serious,  
 guyzz! The Chinese might be  
 behind some of these hacks!  
 Be on the lookout now!  
 
-Approx. 2021: The start of  
-diversity,equity,inclusion  
-initiatives. Kiss your chances  
+Approx. 2021:  
+The start of diversity,  
+equity,inclusion initiatives.  
+Kiss your chances  
 for a tech job goodbye if  
 you're really good at math  
 and science and software but  
