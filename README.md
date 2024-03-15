@@ -3949,8 +3949,8 @@ netting in enough money to
 support car payments and car  
 insurance has become my career  
 challenge. And then I go  
-home to hear Youtube podcasts  
-played by family members  
+home to hear family members  
+playing Youtube podcasts  
 of random Asian weirdos in  
 Asia. 
 
