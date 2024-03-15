@@ -3958,6 +3958,141 @@ Asia.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# How the "A.I. Industry" Looks To Me
+
+Two things before I continue  
+on writing about how I  
+perceive the A.I. industry  
+from a broad perspective.  
+Number one: this writing contains  
+my perception behind the facts.  
+Number two: I have never worked  
+in Silicon Valley.  
+
+Approx. 2008:  
+Google starts to beat Yahoo.  
+Facebook starts to beat Myspace.  
+Everyone is switching bandwagons  
+or hopping on. The internet is  
+great, isn't it?  
+
+Approx. 2012: Read a quote by  
+the 44th U.S.A. president,  
+Barack Obama, that goes something  
+like "don't just use technology,  
+program it".  
+
+*translation*  
+Silicon Valley makes inroads  
+with D.C. at that point in  
+time, to fortify commercial  
+ties.  
+
+Approx. 2014: Machine learning  
+becomes front page news.  
+
+*elaboration*  
+Machines can learn now! Check  
+out these free online courses  
+by universities such as Stanford.  
+Andrew Ng's course is the best!  
+
+Approx. 2016:  
+The Russians, people! The Russians!  
+Hillary Clinton and the Russians!  
+Russia is meddling in the U.S.A.  
+election! Their hackers are twice as  
+powerful as American ones because  
+the Russians are better at math!  
+This is serious, people! The  
+Russians! The Russians!  
+
+Approx. 2016: Internet trolls!  
+4Chan! People sharing their  
+views in inflammatory ways!  
+Let's make some of them stars  
+by publishing Wikipedia articles  
+on them!  
+
+Approx. 2018: GDPR legislation  
+by the European Union to regulate  
+Big Tech data collection and  
+sharing.  
+
+The Russians! The Russians  
+are hacking Americans to  
+politically meddle in  
+U.S.A. affairs! The Russians,  
+people!
+
+Approx. 2019-2020:  
+Experian got hacked! This is  
+serious, guyzz! If Experian  
+got hacked, then so many  
+people will be exposed! And  
+their power may get jeopardized!  
+
+Approx. 2019:  
+"The power of the far right  
+continues to grow stronger  
+by the day and even stronger  
+by night! Democracy will die  
+in darkness if this continues!  
+The internet must remain open  
+so information can freely flow!  
+Trust me, I'm a reporter for  
+the news!"  
+
+Approx. 2020: All these companies  
+got hacked! This is serious,  
+guyzz! The Chinese might be  
+behind some of these hacks!  
+Be on the lookout now!  
+
+Approx. 2021: The start of  
+diversity,equity,inclusion  
+initiatives. Kiss your chances  
+for a tech job goodbye if  
+you're really good at math  
+and science and software but  
+not marginalized enough!  
+
+Approx. 2020-2022:  
+U.S.A Big Tech companies go  
+on a hiring spree, leading to  
+their stock market valuation  
+soaring. Remote jobs become  
+mainstream in the technology  
+industry.  
+
+*commentator*  
+Hey, this is a new age, guyzz!  
+Forget about the Covid-19  
+pandemic!  
+
+Approx. 2021:  
+Ransomware! Ransomware is  
+taking over computer systems  
+and criminals are demanding  
+exorbitant sums! The world  
+is a mess, isn't it?!  
+
+Approx. 2023:  
+ChatGPT! OpenAI is the hot  
+topic now! This is scary, guyzz!  
+If A.I. can generate realistic  
+writing that is intelligent  
+response to user query, then  
+humanity is in great danger,  
+no doubt! A.I. must be  
+regulated! Yeah!! Let's  
+start by laying off half the  
+tech workers! A.I. can do  
+their work for them! Who  
+needs them, anyways?!  
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
