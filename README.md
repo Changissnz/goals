@@ -3726,6 +3726,236 @@ the pain.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# The Ongoing Florida Fiasco
+
+I have to make this point  
+clear: I take no pride in  
+being a Florida native. In  
+fact, I view this fact about  
+myself as something deeply  
+irritating, even a source  
+of bitterness. The United  
+States definitely has its  
+issues in every region.  
+California has recently gotten  
+a lot of heat from the  
+press in mid-2023 up to  
+now over its homelessness,  
+for example. But I want to  
+focus on the southern state  
+of Florida, just so that the  
+thoughts are off of my chest  
+and for a clear mind. This  
+is based on my personal  
+experience living in this  
+state.
+
+Two of Florida's biggest  
+industries are real estate  
+and tourism. There are some  
+very necessary generalizations  
+about these two industries  
+that need to be pointed out.  
+
+Real estate is a conservative  
+industry. On the socio-economic/  
+political spectrum, a person  
+would have to be a damned fool  
+to claim that real estate is  
+left-wing, or a leftist  
+industry. Industry and occupation  
+form a very big factor in  
+developing the psyches and  
+mores of a group of people.  
+It can be said with very  
+little question that real  
+estate's association with the  
+right does not make Florida  
+any more liberal no matter  
+how many left-leaning people  
+move down here. Let's think  
+this through here. Real estate  
+is historically the right of  
+the landowners. Landownership  
+is a privileged and wealthy  
+class, and is almost always  
+tied to the elites. Most  
+homeowners today in the  
+United States still have to  
+pay a monthly mortgage,  
+which technically means they  
+do not actually own the  
+houses they live in. In today's  
+so-called economically  
+globalized world, real estate  
+as the hallmark of elitism  
+and ownership still holds true.  
+For example, the Chinese of  
+the People's Republic of China  
+have between 70 and 80 percent  
+of their assets in real estate.  
+Now I don't know how the  
+Chinese or Southeast/East Asians  
+do things in terms of capital,  
+but I sure do not want 70 to  
+80 percent of my potential  
+assets in real estate, especially  
+in hot and humid Florida.  
+
+Tourism as an industry does  
+bring in a sizable amount of  
+profit, but the profit  
+obviously does not get evenly  
+distributed due to the  
+privatized nature of business,  
+even in countries that lean  
+socialist. Tourists are  
+strangers that visit lands  
+outside of their area of  
+residence to acquire tastes  
+and gain experiences that  
+they would not otherwise have  
+the chance to. I want to go  
+out on a limb here, based on  
+my perspective, and state  
+that tourism is an irresponsible  
+industry. Tourism and accounting  
+are sometimes at odds with each  
+other, especially when the  
+books betray the business.  
+Tourists come and go with the  
+ease and convenience that  
+money buys them. Tourists  
+look for entertainment and  
+recreation. And as many  
+already know, the facets of  
+entertainment and recreation  
+can lead to rather unscrupulous  
+activities, although I am no  
+clergyman to go on a tirade  
+to make denunciations from  
+my compass of morality.  
+
+Combine the generalizations  
+I have made about the above  
+two industries and this  
+additional fact about Florida,  
+that it is a state that is  
+very technologically-poor,  
+and a person can start to  
+understand why Florida gives  
+much misery to a lot of its  
+residents, even the educated  
+ones, perhaps especially the  
+educated ones since ignorance  
+is bliss. There is plenty  
+of electronic equipment in  
+Florida, sure, but almost  
+all of it has been imported  
+from either the West Coast,  
+New England, Germany, China,  
+or Japan. And forget about  
+the software industry. I  
+don't know what A.I. and  
+chip boom is going on  
+right now but I can  
+confidently state those booms  
+are not happening here in  
+Florida. Florida conservatism  
+in education does a poor  
+job of fostering research  
+and development initiatives,  
+for some reason. And I do  
+not think it has to do with  
+being right or left-wing, but  
+how policy and leadership  
+prioritizes some things.  
+For example, Texas houses  
+many more technology companies  
+and government research  
+programs despite its large  
+Hispanic immigrant population  
+and cowboy stereotypes. So  
+"race"/"ethnicity" also does  
+not seem to have a direct  
+correlation to economic  
+planning between different  
+U.S. states in the same  
+region. I am not exactly  
+a fan of California's  
+Silicon Valley since I  
+view many of the ventures  
+in that region as extraneous,  
+derivative, or duplicitous  
+in intention. But I do  
+not think the state of  
+Florida can ever come up  
+with competitive alternatives  
+to the Valley on the same  
+scale that Texas has.  
+
+Residents that have moved to  
+Florida since 2016, and the  
+numbers accelerated with the  
+economic downturn posed by  
+the Covid-19 pandemic which  
+caused over-crowding of roads  
+and spaces to become much  
+more discernible, can be  
+generalized into old retirees,  
+struggling small-business  
+owners for tax breaks, blue-collar  
+workers that cannot afford to  
+live in more expensive regions,  
+and immigrants from Central/Latin  
+America or the Caribbean.  
+These demographics, alongside  
+the national economic hardship  
+that started in the years  
+leading up to the Covid-19  
+pandemic, do not bode well  
+for growing Florida's industries  
+besides from tourism, real  
+estate, and healthcare (due  
+to the old and the strange  
+illnesses that the tropics  
+of Florida has to offer).  
+
+I sometimes think about  
+reaching out to people here  
+to socialize, maybe even get  
+married and start a family  
+here in Florida. But after  
+putting some careful thought  
+into it, I don't think my  
+chances raising a family  
+here would work out. The  
+Greco/Italian/Hispanic  
+subcultures in this state  
+alongside my poor chances  
+of landing a job that pays  
+more than $60K make me want  
+to flee not out of cowardice  
+but disdain. The social  
+isolation I have experienced  
+for a predominant number of  
+years here adds more to my  
+decision to want out of  
+Florida. Having experienced  
+attitudes from strangers and  
+disgruntled mannerisms at my  
+workplace where I am barely  
+netting in enough money to  
+support car payments and car  
+insurance has become my career  
+challenge. And then I go 
+home to hear Youtube podcasts  
+played by family members  
+of random Asian weirdos in  
+Asia. 
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
