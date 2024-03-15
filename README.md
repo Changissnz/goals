@@ -3948,7 +3948,7 @@ workplace where I am barely
 netting in enough money to  
 support car payments and car  
 insurance has become my career  
-challenge. And then I go 
+challenge. And then I go  
 home to hear Youtube podcasts  
 played by family members  
 of random Asian weirdos in  
