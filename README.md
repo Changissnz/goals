@@ -3976,7 +3976,7 @@ Everyone is switching bandwagons
 or hopping on. The internet is  
 great, isn't it?  
 
-Approx. 2012: 
+Approx. 2012:  
 Read a quote by the 44th  
 U.S.A. president, Barack Obama,  
 that goes something like "don't  
