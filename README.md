@@ -4132,8 +4132,8 @@ And then you cry or express
 emotions after these  
 realizations of why things  
 are the way they are or  
-much distressing facts of  
-loss or pains for the  
+much distressing facts that    
+is loss or pains for the  
 present or foreseeable and  
 inevitable future.  
 
