@@ -4097,6 +4097,89 @@ needs them, anyways?!
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Such Heartfelt Emotions
+
+You know the feeling, right?  
+You're grinning and skipping  
+around without a care in the  
+world, but you know you love  
+the world because you are  
+a compassionate person with  
+big aspirations. You are  
+cheesing like a Chucky  
+Cheese, but then you consume  
+or process some information  
+which causes great emotional  
+transformation to take place  
+within you.  
+
+You receive information that  
+you partially knew ahead of  
+time but hoped that not to  
+be the case. Or you come to  
+a realization why some things  
+are the way they are via  
+the receipt of the reasoning  
+behind those things that  
+you never put much personal  
+thought into because you  
+had other issues to tend  
+to, and you know that some  
+problems really cannot be  
+dealt with by you yourself.  
+
+And then you cry or express  
+emotions after these  
+realizations of why things  
+are the way they are or  
+much distressing facts of  
+loss or pains for the  
+present or foreseeable and  
+inevitable future.  
+
+And then you normalize  
+your appearances so that  
+an onlooker does not see  
+you in a most ugly and  
+morbid appearance.  
+It is time for you to  
+pretend if you are  
+still feeling hurt. But  
+if you do not really  
+feel hurt and never  
+really did feel hurt,  
+then you might have  
+"acted" out your emotions  
+at the realizations. You  
+might just wanted to  
+look the part because  
+you have better things  
+to do, something more  
+noble or more personal.  
+You probably do not  
+really care if you were  
+"acting" or not as long  
+as you felt you were  
+in charge of that "acting". 
+
+No one really ever  
+knows how you feel or  
+think, right down to  
+the core. You yourself  
+do not have the capability  
+to perform absolute  
+introspection into yourself,  
+by all definitions of  
+the word "introspection".  
+You can only practice  
+temperance, but you  
+know you are most  
+probably not made entirely  
+of steel.  
+
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
