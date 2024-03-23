@@ -4245,7 +4245,7 @@ ecosystem for technology and
 banking when the work is  
 likely to be spiritually  
 draining and maybe even  
-mindless when a Floridian  
+mindless, so a Floridian  
 could just comfortably relax  
 and purchase technology products  
 imported from centers such  
