@@ -4299,7 +4299,7 @@ Perhaps even a software
 engineer would be surprised  
 to realize that even though  
 the pace of their projects'  
-developments are relatively  
+developments is relatively  
 quick, only taking a few months  
 to complete and there are  
 very noticeable improvements  
