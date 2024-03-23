@@ -4180,6 +4180,154 @@ of steel.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+# Ideas on the Florida Economy
+
+This writing is a follow-up  
+to "The Ongoing Florida  
+Fiasco". Due to my keen  
+interest in the commercial  
+trajectories of technology,  
+primarily digital and  
+electronic, that continue  
+to transform facets of  
+labor and living through  
+healthcare, media, food,  
+transportation and others,  
+I imagined that the large  
+population of Florida  
+(it ranks in the top 5  
+for the nation) would  
+start to organize itself  
+into specialized centers of  
+technology administration and  
+production. The odds of this  
+happening are not far-fetched  
+whatsoever. Shenzhen of  
+China, for example, was  
+able to rapidly transform  
+itself from a fishing  
+village in the 1980's into  
+a technology center with  
+a population that rivals  
+that of New York City,  
+according to the press  
+articles I have read.  
+The strong work ethic and  
+spirit of targeted capital  
+funding are two of the  
+big factors that allowed  
+for this inspiring story  
+to happen. Florida building  
+a center such as Shenzhen  
+is a funny idea to me, though.  
+The push to develop production  
+hubs and specialized education  
+centers in Florida is already  
+a tough task. There is also  
+the issue of maintenance,  
+which includes the problems  
+of pollution, human persistence,  
+and dedication towards improvement.  
+Most of the labor in Shenzhen,  
+despite its exponential growth  
+to its large size as a technology  
+and financial center, has to be  
+ordinary, meaning a typical  
+person could get trained at  
+the tasks for a typical  
+job position in a relatively  
+short amount of time, and  
+then be fit to excel at that  
+position. A critic may ask,  
+what is the point of turning  
+Florida into a large-scale  
+ecosystem for technology and  
+banking when the work is  
+likely to be spiritually  
+draining and maybe even  
+mindless when a Floridian  
+could just comfortably relax  
+and purchase technology products  
+imported from centers such  
+as Shenzhen? That is a  
+fair point, especially if  
+the Floridian is not keen  
+on laboring in a factory.  
+
+There is also the matter of  
+architectural styling. Florida  
+living leans very heavily  
+suburban in the more populated  
+regions. Whereas a place such  
+as Shenzhen strived to erect  
+skyscrapers, Florida likes to  
+sprawl out its population  
+and keep things privatized.  
+These preferences for architectural  
+design say much about what  
+a people want. In one, there  
+is the necessity for sophistication  
+and efficiency: the incorporation  
+of new hardware and new labor  
+with a focus on improving  
+time-space efficiency in human  
+activity. In the other, there  
+is the objective of comfortable  
+if not luxurious living with  
+an aversion for complication  
+outside of human opinion. So  
+Shenzhen set its sights on  
+developing itself for its  
+people as a center to work  
+better. Florida develops itself  
+as a state to live comfortably,  
+although money is still an  
+issue to achieve this objective.  
+The idea of Florida erecting  
+technology campuses such as  
+those found in California  
+seem very out of place by this  
+standpoint.  
+
+One of the fallacies of  
+the digital age is that  
+marked developments happen  
+very quickly, and that those  
+that cannot keep up are  
+going to be losers for life.  
+Perhaps even a software  
+engineer would be surprised  
+to realize that even though  
+the pace of their projects'  
+developments are relatively  
+quick, only taking a few months  
+to complete and there are  
+very noticeable improvements  
+such as algorithmic quality  
+and timeliness, that the  
+effects of these digital  
+improvements do not go  
+very far in terms of  
+perceivable transformation.  
+Most people, even the ones  
+in the high-tech sector,  
+really do not know how  
+far the dollar value of  
+the work done in technology  
+really means, until the  
+products actually sell big.  
+Florida is no California  
+when it comes to being big  
+enough to dream big on top  
+of the backs of low-skilled  
+workers. Florida does not  
+really have a need to be  
+industrial on the same  
+scale as Shenzhen or  
+Silicon Valley. 
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 Copyright 2024 Richard Pham  
 Auf Phantasmos Diarriccimo
 
